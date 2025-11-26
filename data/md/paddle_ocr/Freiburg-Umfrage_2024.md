@@ -1,0 +1,23291 @@
+## Page 1
+
+Freiburg
+I M
+B R E ISGAU
+FR.ITZ>>fragt nach>>
+Amt für Bürgerservice und
+Informationsmanagement
+Informationen, Trends
+und Zahlen
+www.freiburg.de/statistik
+Freiburg-Umfrage 2024
+Ergebnisse zum Beteiligungshaushalt 2025/26
+FR
+Dezember 2024
+
+---
+
+## Page 2
+
+Impressum
+Herausgeberin:
+Stadt Freiburg im Breisgau
+Amt für Bürgerservice und Informationsmanagement
+Abteilung Informationsmanagement
+Berliner Allee 1
+79114 Freiburg i.Br.
+Schriftleitung:
+Michael Haußmann
+Bearbeitung:
+Andreas Kern, Maya Weise
+Ihr Kontakt zu uns:
+statistik@stadt.freiburg.de
+Weitere
+Veröffentlichungen:
+https://fritz.freiburg.de/
+Copyright:
+Dieses Werk ist unter einer Creative Commons Lizenz
+vom Typ Namensnennung 4.0 international zugänglich:
+https://creativecommons.org/licenses/by/4.0
+
+---
+
+## Page 3
+
+Inhalt
+2
+1
+Rahmenbedingungen der Freiburg-Umfrage 2024.
+2
+1.1
+Stichprobe und Rücklauf.
+.2
+1.2
+Vergleichbarkeit mit den vorhergehenden Befragungen
+2
+4
+Ergebnisse im Überblick..
+2.1
+Zufriedenheit mit den Aufgabenbereichen der Stadt Freiburg.
+4
+2.2
+Vertrauen in den Umgang mit den Haushaltsmitteln
+7
+2.3
+Meinung zu Mehrausgabe- und Einsparmöglichkeiten.
+.7
+2.4
+Kategorisierung der Ergebnisse.
+..10
+3
+Ergebnisse nach soziodemographischen Merkmalen.
+.12
+4
+Tabellenteil.
+17
+5
+Fragebogen
+.91
+
+---
+
+## Page 4
+
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+2
+ringfügig verändert und die drei Kategorien
+„Straßen für den motorisierten Verkehr“ ge-
+Erhebung ausgeschlossen.
+gen der Antwortkategorien „Friedhöfe“ und
+wohnerzahl von etwa 50 Personen von der
+genommen. 2020 wurden die Erläuterun-
+Ein-
+angesichts seiner sehr geringen
+wurden 2014 neu in den Fragenkatalog auf-
+der kleinste Stadtbezirk Mundenhof wurde
+weiteren Wohnbauflächen“ und „Fußwege“
+zusammengefasst,
+Haslach-Gartenstadt
+chen. Die beiden Themen „Ausweisung von
+Güterbahnhof und Haslach-Schildacker mit
+mit für die Befragten verständlicher zu ma-
+bezirke Brühl-Industriegebiet mit Brühl-
+Leistungen präziser zu beschreiben und da-
+geringen Einwohnerzahl wurden die Stadt-
+2014 verändert wurden, um die städtischen
+den Antworten voraussetzt. Aufgrund ihrer
+nige Haushaltskategorien ab der Umfrage
+Mindestanzahl von jeweils 35 zu erwarten-
+muss allerdings angemerkt werden, dass ei-
+Stadtbezirke möglich sind, was eine
+miteinander vergleichen. Einschränkend
+kleinräumige Aussagen auf der Ebene der
+zwischen insgesamt acht Befragungen gut
+der Stichprobe wurde so gewählt, dass
+handelte, lassen sich die Ergebnisse der in-
+Alter zwischen 16 und 95 Jahren. Das Design
+gangenheit um Repräsentativbefragungen
+und die ausländische Wohnbevölkerung im
+Da es sich auch bei den Erhebungen der Ver-
+register. Berücksichtigt wurde die deutsche
+rungen im städtischen Haushalt abgefragt.
+probe aus dem Freiburger Einwohnermelde-
+ger_innen zu Mehrausgaben und Einspa-
+erfolgte durch eine reprasentative Stich-
+wurden die Einstellungen der Freibur-
+Die Auswahl der zu befragenden Personen
+2010, 2012, 2014, 2016, 2018, und 2022
+Bereits bei den Umfragen der Jahre 2007,
+Stichprobe und Rücklauf
+1.1
+Befragungen
+Vergleichbarkeit mit den vorhergehenden
+für den Doppelhaushalt 2025/26 begleitet.
+1.2
+Mal die städtischen Haushaltsberatungen
+des Beteiligungshaushaltes, der auch dieses
+ausgefüllt, 2020 zuvor waren es noch 21,4%.
+men und ist seitdem ein fester Bestandteil
+nehmer_innen den Fragebogen online
+2007 in die Freiburg-Umfrage aufgenom-
+letzten Umfrage 2022 haben 33,7% der Teil-
+weniger Geld ausgeben soll, wurde erstmals
+Fragebogen gingen via Internet ein. Bei der
+Der Fragenblock, wofür die Stadt mehr oder
+frage: 52,2 % aller zurückgekommenen
+der Freiburger_innen orientieren.
+Online-Beteiligung an der aktuellen Um-
+Planungen geben, die sich an den Interessen
+46,7% erreicht. Erfreulich ist die hohe
+halten und wertvolle Hinweise für weitere
+2022 wurde sogar eine Rücklaufquote von
+Meinungsbild zu ausgewählten Themen er-
+(43,5 %). Bei der letzten Umfrage im Jahr
+burg-Umfrage ein möglichst umfassendes
+der Freiburg-Umfrage 2020 entspricht
+Die Stadtverwaltung möchte mit der Frei-
+erreicht werden, was in etwa dem Niveau
+wählte Haushalte verschickt.
+43,1 % der angeschriebenen Personen)
+Fragebögen werden dabei an zufällig ausge-
+verwertbaren Fragebögen (dies entspricht
+für die gesamte Stadtgesellschaft. Die
+konnte ein guter Rücklauf von 2.552
+Freiburger Bürger_innen - stellvertretend
+Mitte September und Anfang Oktober 2024
+repräsentative Befragung von knapp 6.000
+Nicht zuletzt durch zwei Erinnerungsbriefe
+Freiburg-Umfrage durch. Dies ist eine
+den Fragebogen online auszufüllen.
+Die Stadt Freiburg führt alle zwei Jahre die
+werden. Alternativ bestand die Möglichkeit,
+den kostenlos an die Stadt zurückgeschickt
+Umfrage 2024
+schickt. Diese konnten von den Teilnehmen-
+Rahmenbedingungen der Freiburg-
+an insgesamt 5.923 Freiburger_innen ver-
+Ende August 2024 wurden die Fragebögen
+1
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+
+---
+
+## Page 5
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Tabelle 1
+verbundenen Mehrausgaben und Einsparungen seit 2007
+2024
+2020-2022
+2014-2018
+2007-2012
+2024
+2020-2022
+2014-2018
+2007-2012
+Quantität
+Wohnungsbau
+Wohnungsbau
+Wirtschaftsförderung, Tourismusförderung, Messen
+Wirtschaftsförderung
+Quantität Ausweis-
+ung von weiteren
+Ausweisung von weiteren Wohnbauflächen
+Kulturförderung (Bürgerhäuser, Kunst, Chöre)
+Wohnbauflächen
+Modernisierung und Sanierung in Wohngebieten
+Theaterangebote (Städtische Bühnen und freie Theater)
+Theaterangebot
+Bürgerservice /
+Bürgerkontakte der
+-
+Musikangebote (Musikschulen, Konzerte, Vereinszuschüsse, .…)
+Stadt Freiburg
+Digitalisierung (Online-Dienste,
+Infrastruktur, Digitalisierung an Schulen, ..)
+-
+Städtische Museen und Stadtarchiv
+Instandhaltung und Bau von Schulen
+Bildungseinrichtungen (Stadtbibliothek, Volkshochschule, Planetarium, .)
+Betreuungsangebote
+an Grundschulen
+Betreuungsangebote an den Schulen
+Klimaschutz (Energiesparen, Wärmedämmung, CO2-Reduktion)
+Betreuungsangebote
+Naturschutz
+an weiterführenden
+Betreuungsangebote an den Schulen
+(Schutzgebiete,
+Naturschutz (Vielfalt Tier- u. Pflan-
+zenarten, Schutzgebiete, Artenschutz, ….)
+Naturschutz
+Schulen
+Artenschutz, ..)
+Kindergärten und Kindertagesstätten
+Parks und Grünanlagen
+Spielplätze
+Stadtwald (Waldpflege, Wegenetz, Erholungs- und
+Freizeitangebote)
+Stadtwald
+Friedhöfe (Verwaltung.
+Treffpunkte für die
+Treffpunkte / Einrichtungen für die Jugend
+Friedhöfe (Verwaltung, Pflege von Fried-
+Pflege von
+Jugend
+hofsanlagen .….)
+Friedhofsanlagen/histor.
+Friechöfe
+Grabdenkmalen)
+Treffpunkte/
+Treffpunkte /Beratungsstellen für Senior_innen
+Beratungsstellen für
+Abfallbeseitigung und Sauberkeit in der Stadt
+Senioren
+Angebote für
+Angebote für ausländische
+Integration
+Zugewanderte
+Mitbürger_innen (Sprachkurse, Treffs)
+ausländischer
+Öffentliche Sicherheit und Ordnung
+(Sprachkurse, Treffs)
+Mitbürger
+Beratungsstellen (Erziehung, Drogen, Alkohol)
+Feuerwehr / Katastrophenschutz
+Straßennezt für den
+Straßen für den
+Schwimmbäder
+Straßen /Regelung
+motorisierten Verkehr
+motorisierten Verkehr
+Straßen
+(PKWs, LKWs, Busse.…)
+(PKWs, LKWs, Busse..)
+des Autoverkehrs
+Sportförderung (Vereine und Sportanlagen)
+Öffentlicher Nahverkehr (Bahnen und Busse)
+Förderung von freiwilligem Engagement
+-
+Radwege-Netz
+Radwege
+Barrierefreiheit fördern (Bauen und
+Kommunikation)
+.
+Fußwege-Netz
+Fußwege
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+3
+
+---
+
+## Page 6
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+„Digitalisierung“, „Barrierefreiheit fördern“
+2.1
+sowie „Förderung von freiwilligem Engage-
+ment“ zusätzlich in den Fragebogen mit
+Zufriedenheit mit den Aufgabenbereichen
+der Stadt Freiburg
+aufgenommen.
+Auch im Vorfeld der aktuellen Freiburg-Um-
+Insgesamt gesehen
+waren
+die
+Frei-
+frage 2024 wurden kleinere Anpassungen
+burger_innen mit der Art und Weise, wie die
+an den Fragestellungen vorgenommen. Neu
+Stadt ihre Aufgaben für das Gemeinwohl
+aufgenommen wurde die Kategorie „Bür-
+erledigt, auch im Jahr 2024 eher zufrieden
+gerservice / Bürgerkontakte der Stadt Frei-
+als unzufrieden.
+burg“. Bei den „Betreuungsangeboten an
+Schulen“ wird seit der jüngsten Umfrage
+Grafik 1
+nach Grund- und weiterführenden Schulen
+Entwicklung des Zufriedenheitsindex
+unterschieden. Aus den „Angeboten für aus-
+insgesamt seit 2014
+ländische Mitbürger_innen“ wurden „Ange-
+bote für Zugewanderte (Sprachkurse,
+Indexwert
+Treffs)“. Die beiden Kategorien zum Woh-
++25
+nungsbau lauten ab der aktuellen Umfrage
+zufrieden
+„Quantität Wohnungsbau“ und „Quantität
++20
+Ausweisung von weiteren Wohnungs-
+bauflächen“. Auch bei drei Kategorien aus
++15
+dem Verkehrsbereich wurden klarstellend
+ergänzt: Hier nun nach dem Straßen-, dem
++10
+Radwege- und dem Fußwege-Netz gefragt.
+>Tabelle 1.
++5
+2
+o
+Ergebnisse im Überblick
+unzufrieden
+-5
+2014
+2016
+2018
+2020
+2022
+2024
+Zur Quantifizierung der Zufriedenheit aus
+den Befragungswerten wurde ein Zufrie-
+Auf einer Skala von -100 (in allen Bereichen
+denheitsindex gebildet. Dazu wurden die
+sehr unzufrieden) bis +100 (in allen
+Antwortkategorien folgendermaßen be-
+Bereichen sehr zufrieden) wurde ein Wert
+punktet und daraus der Durchschnitt gebil-
+von +14 erreicht, der leicht unterhalb des
+det:
+langjährigen Niveaus liegt. Im Vergleich mit
+der letzten Freiburg-Umfrage bedeutet
+Antwortkategorie
+Punkte
+dieser Wert minimale Zunahme. In den
+Jahren zuvor ist der Wert um die 15-Punkte-
+sehr zufrieden
++100
+Marke geschwankt. Insgesamt lässt sich
+zufrieden
++50
+damit eine über die Jahre hinweg eine recht
+teils/teils
+0
+stabile Zufriedenheit der Befragten mit den
+-50
+Aufgabenbereichen der Stadt Freiburg
+unzufrieden
+-100
+feststellen >Grafik 1.
+sehr unzufrieden
+Bemerkenswert ist, dass an der Spitze der
+keine Angabe/weiß ich nicht
+0
+Rangfolge zwei Themen liegen, bei denen
+die Abfrage präzisiert wurde: Bislang wurde
+nach „Fußwegen“ und „Radwegen“ gefragt,
+nun wurde jeweils der Zusatz „Netze“
+gemacht. Daher kann von zwei sich
+überlagernden
+Effekten
+ausgegangen
+Stadt Freiburg i.Br.  Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 7
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+werden. Die deutlichen Zunahmen bei den
+gemacht. Seit 2020 erhoben, war hier
+Zufriedenheitswerten (Radwege-Netz + 15 /
+zunächst eine Mehrheit der Befragten
+Fußwege-Netz +10) im Vergleich zur
+unzufrieden. Mit einem Plus von 6 Punkten
+vorigen Befragung deuten darauf hin, dass
+im Vergleich zu 2022 ist die Digitalisierung
+die Qualität des Netzes höher bewertet wird
+erstmalig (knapp) im positiven Werte-
+als der Zustand der Rad- und Fußwege
+bereich. Damit wird deutlich: es besteht
+allgemein. Daneben ist der positive Sprung
+immer noch viel Luft nach oben, aber die
+bei den Zufriedenheitswerten dieser beiden
+Tendenz stimmt und bei diesem wichtigen
+Kategorien vermutlich aber auch durch die
+Zukunftsthema ist nun eine deutliche
+stetigen Investitionen der Stadt Freiburg in
+Zunahme der Zufriedenheit festzustellen.
+den Fuß- und Radverkehr und damit in den
+Eine umgekehrte Entwicklung nimmt die
+kontinuierlichen Ausbau der Netze für den
+„Wirtschafts-/Tourismusförderung, Mes-
+klimafreundlichen Individualverkehr zu-
+sen“: Gestartet bei +22 Punkten im Jahr
+rückzuführen. Wenn bei der nächsten
+2014 ist seitdem ein kontinuierlicher Rück-
+Runde die Benennung dieser beiden
+gang bei den Zufriedenheitswerten zu
+Themen identisch bleibt, wird sich besser
+beobachten. Aktuell werden nur noch 14
+abschätzen lassen, ob dies ein einmaliger
+Punkte erreicht. Die Kulturförderung hatte
+Sondereffekt war oder ob sich eine
+2020 einen Einbruch zu verzeichnen, von
+Festigung der Spitzenposition festzustellen
+dem sie sich noch nicht wieder erholt hat
+lässt.
+>Tabelle 2.
+An der Spitze der Zufriedenheitsskala liegen
+neben den klimafreundlichen Mobilitäts-
+Tabelle 2
+aspekten (Fußwege-Netz, Radwege-Netz
+Zufriedenheit mit den Aufgabenbereichen
+und Öffentlicher Nahverkehr) zwei Themen
+der Stadt Freiburg seit 2014
+mit denen die Freiburger Bürger_innen, wie
+2014 2016 2018 2020
+2022
+2024
+2014-2024
+bereits bei den zurückliegenden Umfragen,
+Durch-
+Thema
+Rang (Zufriedenheit)
+schnitt-
+weit überdurchschnittlich zufrieden waren:
+licher
+Indexwert
+Der Stadtwald und die Bildungseinricht-
+Fußwege-Netz
+2
+2
+1
+3
+2
+1
++37
+ungen.
+Öffentlicher Nahverkehr
+1
+1
+5
+3
+4
+4
++35
+Spürbar
+unzufrieden
+sind
+die
+Stadtwald
+3
+4
+6
+1
+1
+3
++35
+Freiburger_innen hingegen aktuell nur mit
+Bildungseinrichtungen
+11
+11
+11
+2
+2
+5
++31
+drei Themen: Quantität Wohnungsbau,
+Feuerwehr/Katastrophenschutz
+6
+9
+6
+5
+6
+6
++31
+Instandhaltung/ Bau von Schulen, und
+Quantität der Ausweisung von weiteren
+Theaterangebote
+5
+3
+3
+6
+7
+8
++30
+Wohnbauflächen. Diese befinden sich
+Park- und Grünanlagen
+4
+4
+9
+6
+5
+7
++29
+traditonell am Ende der Rangfolge und
+Radwege-Netz
+10
+4
+10
+10
+8
+2
++29
+lagen auch in den früheren Erhebungen
+Städtische Museen/Stadtarchiv
+6
+8
+3
+6
+8
+9
++29
+(meist deutlich) im negativen Bereich. Was
+Musikangebote
+6
+7
+1
+12
+11
+11
++27
+die langjährigen Durchschnittswerte anbe-
+langt, weisen ansonsten nur noch die
+2014 2016 2018
+2020
+2022
+2024
+2014-2022
+Durch-
+Bereiche Treffpunkte/Einrichtungen für die
+Thema
+Rang (Unzufriedenheit)
+schnitt-
+Jugend sowie Digitalisierung negative
+licher
+Indexwert
+Indexwerte auf. >Grafik 2.
+Quantität Wohnungsbau
+1
+1
+1
+3
+1
+1
+-15
+Vergleicht man die aktuellen Indexwerte
+Quantität Ausweisung von
+mit dem langjährigen Durchschnitt so wird
+weiteren Wohnbauflächen
+2
+1
+2
+4
+3
+3
+-10
+deutlich welche Entwicklung die einzelnen
+Instandhaltung/Bau von Schulen
+3
+3
+3
+1
+2
+2
+-8
+Zufriedenheitswerte im Laufe der Jahre
+Digitalisierung
+2
+3
+12
+-4
+genommen haben. Einen deutlichen Sprung
+Treffpunkte/Einrichtungen für die
+Jugend
+4
+4
+7
+5
+7
+4
+-1
+nach oben hat hier die Digitalisierung
+Modernisierungen/Sanierung in
+Wohngebieten
+6
+4
+3
+11
+6
+4
+-1
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+5
+
+---
+
+## Page 8
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Grafik 2
+Zufriedenheit mit den Aufgabenbereichen
+der Stadt Freiburg aus Sicht der
+Unzufriedenheit
+Zufriedenheit
+überwiegt
+überwiegt
+Fußwege-Netz
++44
+Radwege-Netz
++40
+Stadtwald
++38
+Öffentlicher Nahverkehr
++38
+Bildungseinrichtungen
++37
+Feuerwehr / Katastrophenschutz
++32
+Park- und Grünanlagen
++29
+Theaterangebote
++28
+Städtische Museen / Stadtarchiv
++26
+Abfallbeseitigung und Sauberkeit
++25
+Musikangebote
++23
+Friedhöfe
++22
+Bürgerservice / Bürgerkontakte der Stadt Freiburg
++19
+Schwimmbäder
++18
+Kulturförderung
++16
+Spielplätze
++16
+Naturschutz
++15
+Sportförderung
++14
+Wirtschafts- / Tourismusförderung, Messen
++14
+Öffentliche Sicherheit und Ordnung
++13
+Straßen für den motorisierten Verkehr
++13
+Klimaschutz
++12
+Beratungsstellen
++7
+Förderung von freiwilligem Engagement
++6
+Digitalisierung
++2
+Treffpunkte / Beratungsstellen für Senior_innen
++1
+Betreuungsangebote an Grundschulen
++1
+Angebote für Zugewanderte
++1
+Betreuungsangebote an weiterführenden Schulen
++0
+Kindergärten und Kindertagesstätten
+-0
+Förderung von Barrierefreiheit
+-2
+Modernisierung / Sanierung in Wohngebieten
+-3
+Treffpunkte / Einrichtungen für die Jugend
+-3
+Quantität Ausweisung von weiteren Wohnbauflächen
+-9
+Instandhaltung / Bau von Schulen
+-10
+Quantität Wohnungsbau
+-17
+6
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 9
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+2.2
+2.3
+Vertrauen in den Umgang mit den
+Meinung zu Mehrausgabe- und
+Haushaltsmitteln
+Einsparmöglichkeiten
+Dass die Bevölkerung der Stadt in Sachen
+Um bei den Bürger_innen abzufragen, ob
+Haushalt eher ver- als misstraut, ist im
+sie für verschiedene Aufgabenbereiche
+langjährigen Vergleich klar ablesbar. 37%
+Mehrausgaben oder Einsparungen favori-
+stimmen der Aussage, dass die Stadt ihre
+sieren, wird in der Freiburg-Umfrage regel-
+Mittel verantwortungsvoll ausgibt, eher zu.
+mäßig die folgende Fragestellung gewählt:
+Dies ist mit Abstand der höchste Wert der
+„Die Stadt Freiburg kann sich - genau wie
+letzten Jahre. Weitere 6% stimmen sogar
+ein Privathaushalt - nicht alles gleichzeitig
+„sehr zu“. Weniger als ein Zehntel der
+leisten. Meistens muss man, wenn man für
+Befragten sieht das (eher) nicht so, 24% sind
+eine Sache mehr ausgeben will, bei einer
+geteilter Meinung.
+anderen einsparen. Bitte geben Sie für jeden
+Dass es sich beim städtischen Haushalt um
+Aufgabenbereich an, ob die Stadt Ihrer
+keine einfache Materie handelt, ist
+Meinung nach einsparen kann, also
+gleichzeitig daran zu erkennen, dass sich ein
+Leistungen einschränken soll, die Aufgaben
+Viertel Freiburger_innen keine Einschät-
+unverändert belassen soll, die Leistungen
+zung zu diesem Thema zutrauen >Grafik 3.
+verbessern, also mehr ausgegeben werden
+soll.“
+Grafik 3
+Trotz des Hinweises auf die Notwendigkeit
+„Der Aussage, dass die Stadt Freiburg
+eines Ausgleichs zwischen Mehrausgaben
+verantwortungsvoll mit ihren Mitteln
+und Einsparungen schlagen die Freiburg-
+umgeht, stimme ich..“
+er_innen regelmäßig in mehr Bereichen
+%
+Ausgabenzuwächse vor als Einsparungen.
+40
+Der Indexwert gibt an, um wie viele Prozent-
+35
+punkte der Anteil derjenigen, die in einem
+30
+bestimmten Bereich die Ausgaben aus-
+weiten möchten, den Anteil derjenigen, die
+25
+im selben Bereich für Kürzungen votiert,
+20
+übersteigt. Liegt der Indexwert im
+15
+negativen Bereich, sind mehr Befragte für
+Einsparungen, als sich für Mehrausgaben
+10
+aussprechen. Auf einer Skala von -100 (in
+5
+allen Bereichen Einsparungen) bis +100 (in
+0
+allen Bereichen Mehrausgaben) wurde in
+sehr zu
+eher zu
+teils/teils
+eher nicht zu
+überhaupt
+nicht zu
+weiß ich nicht /
+keine Angabe
+der aktuellen Umfrage ein Durchschnitts-
+wert von +21 erreicht. Damit kam es nach
+Jahren, in denen die Bürger_innen von
+Erhebung zu Erhebung eine höhere Aus-
+weitung der städtischen Ausgaben gefor-
+201420162018202020222024
+dert hatten erstmalig wieder zu einer
+Stagnation der Werte. Zuletzt waren die
+Indexwerte während der schwierigen Haus-
+haltsjahre zwischen 2007 und 2010 auf
+demselben  allerdings wesentlich niedrig-
+eren Niveau — geblieben >Grafik 5.
+7
+LAmt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 10
+
+Grafik 4
+2020 mit weitem Abstand am meisten
+Entwicklung des Ausgabenindex insgesamt
+zulegen konnte (+13 Punkte). Umgekehrt
+seit 2014
+verlieren
+neben
+dem
+Klima-
+und
+Naturschutz auch das Radwegenetz, der
+Indexwert
+Stadtwald und die Betreuungsangebote an
++25
+weiterführenden
+Schulen.
+mehr ausgeben
+Besonders
+bemerkenswert ist die Entwicklung bei der
++20
+Digitalisierung. Hier ist die Zufriedenheit
+sprunghaft angestiegen, einhergehend mit
++15
+einem Rückgang beim Ausgabenindex. Dies
+bedeutet, dass die Bürger_innen die
++10
+verstärkten Anstrengungen der Stadt in
+diesem Bereich positiv wahrnehmen - dies
+führt aber auch dazu, dass der Wunsch nach
++5
+Mehrausgaben in Abwägung mit den
+anderen Themen rückläufig ist. Dennoch
+o
+gehört die Digitalisierung nach wie vor zu
+den Themen bei denen eine deutliche
+einsparen
+-5
+Mehrheit der
+Befragten
+für eine
+2007 2010 2012 2014 2016 2018 2020 2022 2024
+Ausweitung der städtischen Mittel votiert.
+Die Bereiche in denen derzeit in besonders
+Bei nur vier Themen herrscht die Meinung
+hohem Maße Mehrausgaben gefordert
+vor, dass Geld eingespart werden kann:
+werden sind Quantität Wohnungsbau,
+traditionell wird bei der Wirtschafts-/
+Instandhaltung / Bau von Schulen, Modern-
+Tourismusförderung und den Messen mit
+isierung und Sanierung in den Wohn-
+deutlichem Abstand das höchste Einspar-
+gebieten, Digitalisierung sowie beim Klima-
+potenzial gesehen. Daneben sind es die
+schutz.
+Straßen für den motorisierten Verkehr,
+Im Zeitvergleich haben sich die Prioritäten
+Friedhöfe sowie städtische Museen/
+in den vergangenen Jahren seit 2007
+Stadtarchiv, die negative Indexwerte auf-
+allerdings erkennbar verschoben: Waren bis
+weisen. In den ersten Jahren des
+2018 die Kinder- und Jugendthemen in der
+Beteiligungshaushalts wurde noch bei den
+Rangfolge dominant, so haben diese
+Friedhöfen das größte Einsparpotential
+Themen seit 2020 sukzessive an Bedeutung
+verortet. Im langjährigen Vergleich wird
+verloren. Umgekehrt sind der öffentliche
+deutlich, dass die Friedhöfe seitdem eine
+Nahverkehr, der Klima- und Naturschutz in
+deutliche Aufwärtsbewegung genommen
+der Rangfolge nach oben geklettert und
+haben: bis 2018 lagen die Indexwerte stets
+sind schließlich bei der letzten Umfrage
+im zweistellig negativen Bereich, aktuell
+2022 in die Spitzengruppe des Ausgaben-
+wurde ein Indexwert von -7 erreicht.
+index aufgestiegen. Allerdings sind der
+Klima- und Naturschutz in der aktuellen
+Runde bereits wieder in der Ausgaben-
+präferenz der Bürger_innen gesunken. Auch
+bei anderen Aufgabenbereichen wird im
+Vergleich mit der Erhebung von vor zwei
+Jahren sichtbar, wie die globalen Trends der
+letzten Jahre auch auf die Ergebnisse des
+Freiburger Beteiligungshaushalts durch-
+schlagen:
+Öffentliche Sicherheit und
+Ordnung ist das Thema, das im Vergleich zu
+
+---
+
+## Page 11
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Grafik 5
+(Skala von -100 bis +100)
+Geld
+Mehr Geld
+einsparen
+ausgeben
+Quantität Wohnungsbau
++52
+Instandhaltung / Bau von Schulen
++48
+Modernisierung / Sanierung in Wohngebieten
++43
+Digitalisierung
++42
+Kli maschutz
++40
+Öffentlicher Nahverkehr
++38
+Öffentliche Sicherheit und Ordnung
++38
+Kindergärten und Kindertagesstätten
++34
+Naturschutz
++34
+Quantität Ausweisung von weiteren Wohnbauflächen
++30
+Betreuungsangebote an Grundschulen
++29
+Abfall beseitigung und Sauberkeit
++28
+Park- und Grūnanlagen
++28
+Treffpunkte / Einrichtungen für die Jugend
++26
+Radwege-Netz
++26
+Förderung der Barrierefreiheit
++25
+Schwimmbäder
++24
+Angebotefür Zugewanderte
++22
+Sportfärderung
++21
+Betreu ungsangebote an weiterführenden Schulen
++21
+Förderung von freiwill igem Engagement
++20
+Beratungsstellen
++17
+Stadtwald
++17
+Fußwege-Netz
++16
+Feuerwehr / Katastrophenschutz
++15
+Bildungseinrichtungen
++14
+Treffpunkte / Beratungsstellen für Senior_innen
++13
+Spielplätze
++11
+Musikangebote
++10
+Bürgerservice / Bürgerkontakte der Stadt Freiburg
++9
+Kulturförderung
++6
+Theaterangebote
+|+1
+Städtische Museen /Stadtarchiv
+-2
+Friedhöfe
+-7
+Straßen für den motorisierten Verkeh r
+-13
+Wirtschafts- / Tourismusförderung, Messen
+-23
+9
+Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 12
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+2.4
+denen daher am ehesten Einsparpotenziale
+Kategorisierung der Ergebnisse
+gesehen werden: Wirtschafts-/ Tourismus-
+förderung, Messen, städtische Museen/
+Betrachtet man die beiden Dimensionen
+Stadtarchiv
+sowie die
+Friedhöfe. In
+Zufriedenheit und Ausgabepriorisierung
+räumlicher Nähe dazu liegen die Straßen für
+synoptisch, können die 36 von den
+den motorisierten Verkehr. Da hier die
+Freiburger_innen eingeschätzten Bereiche
+Zufriedenheit
+leicht
+unter
+dem
+kategorisiert werden. Am drängendsten
+Durchschnittswert liegen, fallen diese als
+erscheinen dabei die Themen der Kategorie
+einziger Aufgabenbereich in die Kategorie
+I. Hier fällt die Zufriedenheit unterdurch-
+V. Generell lässt sich ein Zusammenhang
+schnittlich aus, gleichzeitig werden deu-
+zwischen
+den
+beiden
+Indexwerten
+tliche Mehrausgaben angeregt.
+erkennen: je unzufriedener die Bürger
+In >Grafik 7 wird dabei die herausgehobene
+innen mit einem der 36 abgefragten
+Haushaltsthemen
+Bedeutung der vier Bereiche Quantität
+desto stärker
+fordern sie für diesen Bereich Mehr-
+Wohnungsbau, Instandhaltung/Bau von
+ausgaben>Grafik 6.
+Schulen, Moderrnisierung/Sanierung in
+Wohngebieten und Digitalisierung sichtbar.
+3
+Diese grenzen sich von den übrigen dieser
+Ergebnisse nach soziodemografischen
+Kategorie zugeordneten Themen nochmals
+ab und können aus Sicht der Bürger_innen
+Merkmalen
+als besonders prioritär betrachtet werden.
+Alle in den vorigen Kapiteln vorgestellten Er-
+Mit etwas höheren Zufriedenheitswerten
+gebnisse wurden zudem nach Geschlecht,
+ausgestattet sind die Themen Klimaschutz
+Altersgruppen, Haushaltstypen, Berufstä-
+und
+Öffentliche
+Sicherheit/Ordnung.
+tigkeit, höchstem Schul- und beruflichem
+Weniger hohe Ausgabenwerte weisen u.a.
+Abschluss, Migrationshintergrund, Wohn-
+Kindergärten und Kindertagesstätten sowie
+dauer in Freiburg und Äquivalenzeinkom-
+Betreuungsangebote an Grundschulen auf.
+men differenziert >Tabellenanhang.
+In die Kategorie Il fallen Bereiche, mit denen
+Die Meinungen der Freiburger_innen gehen
+die Freiburger Bevölkerung überdurch-
+dabei teilweise deutlich auseinander. Zu er-
+schnittlich zufrieden sind, trotzdem aber
+deutliche Mehrausgaben als notwendig
+kennen sind die zwischen den sozialen
+erachtet werden. Dazu gehört beispiels-
+Gruppen polarisierenden Themen daran,
+dass es mehr (stark) eingefärbte Felder in
+weise das Radwege-Netz oder der ÖPNV.
+Auch die Abfallbeseitigung und Sauberkeit
+der jeweiligen Tabelle gibt. Weichen die ent-
+sowie die öffentliche Sicherheit und
+sprechenden Felder um mehr als 5 Punkte
+Ordnung findet sich in diesem Bereich des
+vom jeweiligen Mittelwert ab, werden diese
+Diagramms.
+hellrot bzw. hellblau eingefärbt. Abwei-
+chungen von 10-Punkten und mehr werden
+Im Mittelfeld sind die Kategorien III (geringe
+dunkelrot bzw. dunkelblau markiert. Dies ist
+Zufriedenheit, etwas mehr Geld ausgeben)
+insbesondere in den Bereichen öffentliche
+und IV (hohe Zufriedenheit, etwas mehr
+Sicherheit/Ordnung sowie Abfallbeseiti-
+Geld ausgeben) zu finden. Diese im
+gung/Sauberkeit der Fall. Auch bei den Ver-
+Diagramm gelb bzw. hellblau markierten
+kehrsthemen unterscheiden sich die Auffas-
+Bereiche umfassen Themen bei denen der
+sungen zur Ausgabenpriorisierung stark.
+Ausgabenindex leicht unterdurchschnittlich
+Hier finden sich ähnliche Muster wie beim
+ist.
+Klima- und Naturschutz. Strittig sind sind
+Die Kategorie VI umfasst drei Themen, mit
+darüber hinaus die Themen zur Infrastruk-
+denen die Freiburger_innen bereits über-
+tur
+wie
+Schwimmbäder, Instandhal-
+durchschnittlich zufrieden sind und bei
+tung/Bau von Schulen oder Friedhöfe.
+10
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 13
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Grafik 7
+Kategorisierung der Haushaltsthemen 2024 (beide Skalen von -100 bis +100)
++60
++50
+2
+überdurch-
+schnittlich
+mehr Geld
++40
+ausgeben
+6
+14
+15
++30
+8
+16
+17
+10
+18
+11
+12
+20 19
+13
++20
+2I
+22
+24
+25
+26
+unterdurch-
+23
+27
+Ausgabeindex
++10
+schnittlich
+28
+mehr Geld
+30
+29
+ausgeben
+31
+32
+34
+35
+-10
+Geld
+33
+einsparen
+-20
+unter-
+98
+durchschnittliche
+überdurchschnittliche
+Unzufriedenheit
+Zufriedenheit
+Zufriedenheit
+-30
+-30
+-20
+-10
++10
++20
++30
++40
++50
++60
+Zufriedenheitsindex
+KategorieI
+geringe Zufriedenheit, deutlich mehr Geld ausgeben
+Kategorie Il geringe Zufriedenheit, etwas mehr Geld ausgeben
+1
+Quantität Wohnungsbau
+21
+Förderung von freiwilligem Engagement
+2
+Instandhaltung / Bau von Schuien
+22
+Beratungsstellen
+3
+Modernisierung / Sanierung in Wohngebieten
+23
+Treffpunkte / Beratungsstellen für Senior_innen
+4
+Digitalisierung
+5
+Klimaschutz
+Kategorie IV hohe Zufriedenheit, etwas mehr Geld ausqeben
+6
+Öffentliche Sicherheit und Ordnung
+24
+Stadtwald
+L
+Kindergärten und Kindertagesstätten
+25
+Fußwege-Netz
+8
+Quantität Ausweisung von weiteren Wohnbau
+26
+Feuerwehr / Katastrophenschutz
+9
+Betreuungsangebote an Grundschulen
+27
+Bildungseinrichtungen
+10
+Treffpunkte / Einrichtungen für die Jugend
+28
+Spielplätze
+11
+Förderung von Barrierefreiheit
+29
+Musikangebote
+12
+Angebote für Zugewanderte
+30
+Bürgerservice / Bürgerkontakte der Stadt Freiburg
+13
+Betreuungsangebote an weiterführenden Schu
+31
+Kulturförderung
+32
+Theaterangebote
+Kategorie II hohe Zufriedenheit, deutlich mehr Geld ausgeben
+14
+Öffentlicher Nahverkehr
+Kategorie v geringe Zufriedenheit, Geld einsparen
+15
+Naturschutz
+33
+Straßen für den motorisierten Verkehr
+16
+Abfallbeseitigung und Sauberkeit
+17
+Park- und
+Grünanlagen
+Kategorie vi hohe Zufriedenheit, Geld einsparen
+18
+Radwege-Netz
+34
+Städtische Museen / Stadtarchiv
+19
+Schwimmbäder
+35
+Friedhöfe
+20
+Sportförderung
+36
+Wirtschafts- / Tourismusförderung, Messen
+11
+
+---
+
+## Page 15
+
+4
+Tabellenteil
+
+---
+
+## Page 16
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025/26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Quantität Wohnungsbau -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+13
+27
+25
+12
+21
+-16
+männlich (inkl. divers)
+2
+15
+25
+25
+16
+17
+-18
+Altersgruppen
+16 bis unter 30
+2
+15
+24
+25
+16
+17
+-19
+30 bis unter 45
+3
+13
+26
+27
+18
+13
+-23
+45 bis unter 60
+2
+13
+32
+22
+12
+18
+-14
+60 bis unter 75
+2
+15
+23
+25
+12
+22
+-14
+75 und älter
+3
+13
+21
+23
+7
+33
+-10
+Haushaltstyp
+Einpersonenhaushalt
+3
+12
+25
+26
+13
+21
+-16
+Mehrpersonen ohne Kind
+2
+15
+25
+27
+13
+19
+-17
+Mehrpersonen mit Kind(ern)
+2
+14
+30
+22
+19
+14
+-21
+Alleinerziehende
+o
+17
+30
+18
+18
+16
+-18
+Berufstätigkeit
+ganztags berufstätig
+3
+15
+28
+25
+15
+15
+-18
+teilzeitbeschäftigt
+1
+14
+29
+24
+16
+16
+-21
+Schüler_in/Student_in
+1
+12
+25
+28
+14
+20
+-20
+nicht berufstätig
+4
+14
+21
+25
+11
+25
+-13
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+10
+28
+22
+11
+26
+-14
+Mittlere Reife/Realschulabschluss
+2
+11
+26
+25
+14
+21
+-18
+Abitur/ (Fach-)Hochschulreife
+2
+15
+26
+26
+14
+17
+-17
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+3
+14
+26
+25
+11
+22
+-14
+Lehre (auch duales System)
+2
+6
+28
+25
+14
+22
+-20
+Fachschule/Fachhochschule/BA
+2
+13
+26
+25
+15
+19
+-19
+Hochschulabschluss, Promotion
+2
+17
+25
+26
+14
+16
+-16
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+15
+26
+27
+13
+18
+-17
+Deutsche mit Migrationshintergrund
+3
+12
+24
+21
+15
+24
+-16
+Ausländer_innen
+5
+11
+25
+18
+20
+21
+-19
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+12
+26
+26
+16
+19
+-21
+5 bis unter 15 Jahre
+3
+13
+26
+24
+16
+17
+-19
+15 Jahre und länger
+3
+15
+26
+26
+11
+20
+-13
+seit Geburt
+2
+15
+25
+27
+16
+15
+-20
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+11
+24
+24
+17
+21
+-20
+2. Quartil
+2
+13
+25
+27
+15
+17
+-20
+3. Quartil
+2
+15
+27
+27
+14
+16
+-18
+4. Quartil (höchstes Einkommen)
+3
+18
+26
+27
+11
+15
+-13
+Durchschnitt
+insgesamt
+2
+14
+Anzahl
+26
+25
+14
+19
+-17
+insgesamt
+60
+353
+659
+645
+356
+479
+2552
+unterdurchschnittlich zufrieden
+überdurchschnittlich zufrieden
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+18
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 17
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Quantität Ausweisung von weiteren Wohnbauflächen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+teils/teils
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+13
+25
+18
+8
+33
+-9
+männlich (inkl. divers)
+3
+16
+25
+20
+11
+25
+-10
+Altersgruppen
+16 bis unter 30
+3
+13
+22
+17
+10
+34
+-9
+30 bis unter 45
+3
+15
+24
+20
+13
+24
+-12
+45 bis unter 60
+3
+13
+30
+19
+10
+25
+6-
+60 bis unter 75
+3
+14
+27
+21
+6
+29
+-7
+75 und älter
+2
+16
+22
+20
+3
+38
+-3
+Haushaltstyp
+Einpersonenhaushalt
+3
+11
+25
+19
+8
+34
+-9
+Mehrpersonen ohne Kind
+3
+15
+25
+18
+9
+29
+-8
+Mehrpersonen mit Kind(ern)
+3
+16
+28
+21
+11
+21
+-11
+Alleinerziehende
+2
+23
+19
+22
+10
+23
+-7
+Berufstätigkeit
+ganztags berufstätig
+4
+16
+26
+21
+12
+23
+-10
+teilzeitbeschäftigt
+1
+15
+30
+19
+11
+24
+-12
+Schüler_in /Student_in
+3
+10
+20
+16
+8
+43
+-9
+nicht berufstätig
+3
+14
+24
+18
+6
+35
+-6
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+15
+25
+19
+6
+32
+-5
+Mittlere Reife/ Realschulabschluss
+2
+|
+31
+17
+12
+27
+-13
+Abitur/ (Fach-)Hochschulreife
+3
+15
+25
+20
+9
+28
+-9
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+18
+23
+15
+7
+34
+-2
+Lehre (auch duales System)
+2
+6
+29
+17
+11
+31
+-13
+Fachschule/Fachhochschule/BA
+1
+14
+26
+20
+11
+27
+-13
+Hochschulabschluss, Promotion
+4
+16
+23
+21
+6
+27
+-7
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+14
+26
+19
+9
+28
+-9
+Deutsche mit Migrationshintergrund
+3
+15
+22
+18
+12
+29
+-10
+Ausländer_innen
+5
+13
+21
+18
+12
+31
+-10
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+12
+23
+16
+10
+36
+-10
+5 bis unter 15 Jahre
+4
+16
+24
+19
+9
+27
+-7
+15 Jahre und länger
+3
+14
+27
+21
+7
+29
+-7
+seit Geburt
+3
+15
+28
+19
+15
+20
+-15
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+11
+23
+16
+11
+37
+-11
+2. Quartil
+3
+15
+23
+21
+10
+27
+-11
+3. Quartil
+3
+15
+28
+20
+9
+25
+-8
+4. Quartil (höchstes Einkommen)
+4
+17
+28
+23
+8
+21
+-7
+Durchschnitt
+insgesamt
+3
+14
+25
+19
+9
+29
+Anzahl
+-9
+insgesamt
+74
+364
+648
+488
+241
+737
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+19
+
+---
+
+## Page 18
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Modernisierung und Sanierung in Wohngebieten -
+Soziodemografische Merkmale
+sehr
+eher
+teils/teils
+eher
+sehr
+weiß ich
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+15
+31
+17
+4
+30
+-3
+männlich (inkl. divers)
+2
+17
+32
+17
+5
+27
+-2
+Altersgruppen
+16 bis unter 30
+3
+17
+31
+16
+4
+29
+-2
+30 bis unter 45
+2
+15
+32
+18
+6
+27
+-6
+45 bis unter 60
+2
+20
+32
+16
+3
+26
++1
+60 bis unter 75
+2
+15
+33
+17
+4
+28
+-3
+75 und älter
+2
+16
+30
+10
+2
+39
++3
+Haushaltstyp
+Einpersonenhaushalt
+3
+17
+30
+16
+3
+31
+-0
+Mehrpersonen ohne Kind
+1
+16
+33
+17
+4
+28
+-3
+Mehrpersonen mit Kind(ern)
+3
+15
+32
+18
+6
+25
+-4
+Alleinerziehende
+o
+20
+38
+11
+14
+16
+-10
+Berufstätigkeit
+ganztags berufstätig
+3
+17
+32
+18
+6
+25
+-4
+teilzeitbeschäftigt
+1
+17
+33
+18
+5
+26
+-4
+Schüler_in /Student_in
+2
+14
+31
+14
+4
+36
+-2
+nicht berufstätig
+3
+16
+31
+15
+4
+32
+-0
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+16
+30
+14
+6
+31
+-1
+Mittlere Reife/ Realschulabschluss
+3
+12
+32
+19
+6
+29
+-7
+Abitur/ (Fach-)Hochschulreife
+2
+17
+32
+17
+4
+28
+-2
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+20
+32
+13
+3
+27
++5
+Lehre (auch duales System)
+2
+12
+32
+18
+5
+30
+-6
+Fachschule/Fachhochschule/BA
+1
+16
+32
+18
+5
+28
+-6
+Hochschulabschluss, Promotion
+2
+17
+32
+16
+4
+29
+-1
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+16
+32
+17
+4
+29
+-3
+Deutsche mit Migrationshintergrund
+4
+16
+35
+14
+7
+23
+-2
+Ausländer_innen
+6
+17
+25
+15
+8
+29
+-1
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+16
+28
+16
+4
+33
+-3
+5 bis unter 15 Jahre
+2
+16
+31
+17
+5
+29
+-3
+15 Jahre und länger
+2
+17
+34
+16
+4
+27
+-1
+seit Geburt
+3
+18
+31
+16
+8
+24
+-4
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+16
+28
+16
+6
+31
+-2
+2. Quartil
+2
+15
+34
+15
+7
+26
+-5
+3. Quartil
+2
+17
+36
+14
+4
+28
+-0
+4. Quartil (höchstes Einkommen)
+1
+18
+32
+22
+2
+25
+-3
+Durchschnitt
+insgesamt
+2
+16
+32
+17
+5
+29
+-3
+Anzahl
+insgesamt
+56
+418
+807
+424
+118
+729
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+20
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 19
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Bürgerservice / Bürgerkontakte der Stadt Freiburg -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+zufrieden
+zufrieden
+teils/teils
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+10
+33
+24
+6
+3
+25
++20
+männlich (inkl. divers)
+10
+32
+23
+8
+4
+22
++18
+Altersgruppen
+16 bis unter 30
+16
+34
+16
+7
+3
+25
++27
+30 bis unter 45
+12
+34
+23
+8
+4
+20
++22
+45 bis unter 60
+6
+34
+24
+6
+5
+20
++17
+60 bis unter 75
+4
+33
+30
+5
+4
+23
++14
+75 und älter
+4
+25
+28
+5
+1
+37
++13
+Haushaltstyp
+Einpersonenhaushalt
+7
+33
+23
+6
+3
+28
++18
+Mehrpersonen ohne Kind
+10
+33
+23
+8
+3
+22
++19
+Mehrpersonen mit Kind(ern)
+12
+34
+24
+8
+4
+17
++21
+Alleinerziehende
+12
+35
+28
+4
+5
+17
++22
+Berufstätigkeit
+ganztags berufstätig
+11
+33
+22
+6
+4
+21
++19
+teilzeitbeschäftigt
+11
+34
+26
+6
+3
+17
++21
+Schüler_in / Student_in
+14
+41
+13
+4
+3
+26
++30
+nicht berufstätig
+6
+28
+26
+9
+3
+30
++14
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+19
+30
+8
+6
+34
++3
+Mittlere Reife/ Realschulabschluss
+6
+26
+26
+6
+5
+28
++10
+Abitur/ (Fach-)Hochschulreife
+12
+36
+22
+6
+3
+21
++24
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+11
+26
+24
+5
+4
+31
++18
+Lehre (auch duales System)
+6
+28
+26
+8
+4
+27
++12
+Fachschule/Fachhochschule/BA
+7
+32
+26
+10
+5
+21
++14
+Hochschulabschluss, Promotion
+13
+38
+21
+9
+2
+20
++27
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+10
+35
+23
+7
+3
+22
++22
+Deutsche mit Migrationshintergrund
+8
+30
+25
+10
+4
+24
++14
+Ausländer_innen
+6
+23
+23
+6
+8
+27
++7
+Wohndauer in Freiburg
+unter 5 Jahre
+15
+34
+15
+6
+3
+28
++25
+5 bis unter 15 Jahre
+13
+35
+22
+7
+3
+21
++24
+15 Jahre und länger
+6
+34
+28
+7
+3
+21
++16
+seit Geburt
+7
+26
+28
+10
+5
+25
++10
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+10
+28
+22
+8
+5
+26
++15
+2. Quartil
+7
+34
+25
+6
+4
+23
++18
+3. Quartil
+11
+34
+24
+6
+2
+20
++21
+4. Quartil (höchstes Einkommen)
+13
+38
+21
+7
+2
+19
++26
+Durchschnitt
+insgesamt
+10
+33
+23
+Anzahl
+7
+4
+23
++19
+insgesamt
+253
+836
+592
+188
+90
+594
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+21
+
+---
+
+## Page 20
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+Ditaeungn-Dis IastukDitaisieunSc
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+zufrieden
+teils/teils
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+20
+25
+13
+5
+34
++2
+männlich (inkl. divers)
+5
+24
+22
+14
+8
+26
++2
+Altersgruppen
+16 bis unter 30
+8
+27
+22
+15
+7
+22
++7
+30 bis unter 45
+5
+27
+24
+15
+7
+21
++4
+45 bis unter 60
+3
+19
+27
+18
+8
+27
+-5
+60 bis unter 75
+3
+18
+25
+10
+5
+39
++1
+75 und älter
+o
+8
+15
+7
+1
+68
+-1
+Haushaltstyp
+Einpersonenhaushalt
+3
+18
+22
+14
+4
+38
++1
+Mehrpersonen ohne Kind
+5
+22
+23
+12
+7
+31
++3
+Mehrpersonen mit Kind(ern)
+4
+26
+30
+16
+10
+14
+-1
+Alleinerziehende
+4
+24
+22
+29
+5
+16
+-3
+Berufstätigkeit
+ganztags berufstätig
+5
+22
+24
+15
+8
+25
++0
+teilzeitbeschäftigt
+4
+27
+26
+15
+7
+21
++3
+Schüler_in /Student_in
+6
+28
+24
+11
+7
+24
++8
+nicht berufstätig
+3
+15
+21
+11
+4
+46
++1
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+7
+23
+11
+4
+54
+-5
+Mittlere Reife/Realschulabschluss
+4
+15
+23
+12
+8
+38
+-2
+Abitur/ (Fach-)Hochschulreife
+4
+25
+24
+14
+6
+26
++3
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+8
+19
+22
+13
+6
+32
++6
+Lehre (auch duales System)
+3
+16
+24
+13
+9
+39
+-2
+Fachschule/Fachhochschule/BA
+4
+19
+24
+13
+7
+33
+-0
+Hochschulabschluss, Promotion
+4
+27
+24
+14
+7
+24
++4
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+23
+24
+14
+6
+30
++2
+Deutsche mit Migrationshintergrund
+6
+18
+25
+13
+5
+33
++3
+Ausländer_innen
+7
+18
+22
+14
+9
+29
+-0
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+26
+21
+12
+6
+28
++8
+5 bis unter 15 Jahre
+4
+27
+23
+15
+7
+23
++3
+15 Jahre und länger
+3
+18
+25
+13
+5
+36
++0
+seit Geburt
+3
+16
+27
+15
+8
+30
+-4
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+21
+22
+11
+7
+33
++3
+2. Quartil
+4
+21
+21
+14
+6
+34
++1
+3. Quartil
+3
+26
+28
+14
+9
+24
++3
+4. Quartil (hõchstes Einkommen)
+5
+24
+22
+15
+8
+25
++1
+Durchschnitt
+insgesamt
+4
+22
+Anzahl
+24
+14
+6
+30
++2
+insgesamt
+111
+549
+602
+346
+166
+778
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+22
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 21
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Instandhaltung und Bau von Schulen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+teils/teils
+sehr
+weiß ich
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+7
+13
+15
+7
+56
+-10
+männlich (inkl. divers)
+1
+9
+16
+15
+9
+51
+-11
+Altersgruppen
+16 bis unter 30
+2
+7
+11
+9
+5
+68
+-4
+30 bis unter 45
+3
+9
+14
+11
+6
+57
+-4
+45 bis unter 60
+1
+12
+18
+21
+12
+36
+-16
+60 bis unter 75
+1
+5
+14
+21
+11
+47
+-18
+75 und älter
+1
+3
+13
+17
+8
+58
+-14
+Haushaltstyp
+Einpersonenhaushalt
+1
+5
+10
+13
+5
+65
+-8
+Mehrpersonen ohne Kind
+1
+6
+12
+16
+8
+57
+-12
+Mehrpersonen mit Kind(ern)
+2
+14
+26
+18
+12
+29
+-11
+Alleinerziehende
+4
+25
+19
+17
+20
+15
+-12
+Berufstätigkeit
+ganztags berufstätig
+2
+8
+14
+15
+9
+52
+-10
+teilzeitbeschäftigt
+1
+10
+17
+18
+11
+44
+-14
+Schüler_in / Student_in
+1
+6
+10
+9
+3
+71
+-0
+nicht berufstätig
+2
+5
+14
+17
+8
+54
+-12
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+7
+16
+15
+11
+48
+-14
+Mittlere Reife/ Realschulabschluss
+1
+5
+15
+18
+13
+48
+-18
+Abitur/ (Fach-)Hochschulreife
+1
+8
+14
+16
+7
+54
+-10
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+9
+15
+8
+7
+57
+-3
+Lehre (auch duales System)
+1
+6
+17
+16
+11
+49
+-15
+Fachschule/Fachhochschule/BA
+1
+8
+14
+16
+10
+51
+-12
+Hochschulabschluss, Promotion
+1
+8
+13
+16
+7
+55
+-10
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+7
+14
+17
+9
+52
+-13
+Deutsche mit Migrationshintergrund
+4
+8
+18
+13
+6
+50
+-5
+Ausländer_innen
+4
+11
+15
+6
+2
+62
++4
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+7
+10
+6
+3
+73
+-2
+5 bis unter 15 Jahre
+2
+8
+11
+11
+7
+61
+-7
+15 Jahre und länger
+2
+8
+17
+20
+10
+43
+-14
+seit Geburt
+1
+9
+19
+24
+14
+34
+-20
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+8
+15
+8
+6
+60
+-4
+2. Quartil
+2
+8
+13
+18
+10
+49
+-13
+3. Quartil
+1
+8
+16
+18
+8
+49
+-12
+4. Quartil (höchstes Einkommen)
+0
+7
+13
+17
+7
+56
+-12
+Durchschnitt
+insgesamt
+2
+Anzahl
+8
+14
+15
+8
+53
+-10
+insgesamt
+40
+199
+362
+385
+209
+1357
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 22
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+WzudniErülbneic
+- Betreuungsangebote an Grundschulen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+7
+8
+5
+2
+75
++1
+männlich (inkl. divers)
+2
+7
+8
+5
+2
+75
++1
+Altersgruppen
+16 bis unter 30
+1
+4
+5
+2
+1
+87
++1
+30 bis unter 45
+4
+7
+6
+5
+3
+72
++2
+45 bis unter 60
+3
+14
+11
+8
+3
+62
++4
+60 bis unter 75
+1
+4
+8
+6
+3
+78
+-2
+75 und älter
+o
+4
+6
+6
+2
+82
+-2
+Haushaltstyp
+Einpersonenhaushalt
+1
+3
+6
+3
+1
+86
+-1
+Mehrpersonen ohne Kind
+1
+4
+6
+4
+2
+84
+-1
+Mehrpersonen mit Kind(ern)
+6
+17
+18
+6
+5
+45
++6
+Alleinerziehende
+11
+30
+14
+14
+7
+24
++12
+Berufstätigkeit
+ganztags berufstätig
+3
+7
+8
+6
+2
+74
++1
+teilzeitbeschäftigt
+3
+10
+11
+6
+4
+66
++1
+Schüler_in /Student_in
+1
+4
+4
+2
+1
+89
++1
+nicht berufstätig
+2
+6
+8
+5
+2
+77
+0-
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+7
+8
+8
+4
+72
+-2
+Mittlere Reife/ Realschulabschluss
+2
+5
+8
+7
+4
+75
+-3
+Abitur/ (Fach-)Hochschulreife
+2
+7
+8
+5
+2
+76
++1
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+6
+7
+3
+2
+78
++5
+Lehre (auch duales System)
+1
+9
+8
+8
+3
+74
+-3
+Fachschule/Fachhochschule/BA
+2
+8
+7
+5
+2
+75
++1
+Hochschulabschluss, Promotion
+2
+8
+9
+5
+2
+75
++2
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+6
+8
+6
+2
+76
+-0
+Deutsche mit Migrationshintergrund
+3
+7
+9
+5
+2
+75
++2
+Ausländer_innen
+6
+10
+11
+2
+1
+70
++9
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+3
+5
+2
+o
+88
++1
+5 bis unter 15 Jahre
+3
+7
+7
+3
+2
+79
++3
+15 Jahre und länger
+2
+9
+11
+7
+3
+68
+-0
+seit Geburt
+3
+8
+7
+8
+4
+69
+-1
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+5
+8
+5
+2
+78
++0
+2. Quartil
+2
+9
+8
+6
+2
+73
++1
+3. Quartil
+2
+10
+10
+8
+1
+68
++3
+4. Quartil (hõchstes Einkommen)
+1
+4
+8
+3
+2
+81
++0
+Durchschnitt
+insgesamt
+2
+7
+8
+5
+2
+75
++1
+Anzahl
+insgesamt
+55
+179
+208
+133
+58
+1920
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+24
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 23
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Betreuungsangebote an weiterführenden Schulen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß ich
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+5
+7
+5
+1
+80
++1
+männlich (inkl. divers)
+1
+5
+9
+5
+1
+79
++0
+Altersgruppen
+16 bis unter 30
+1
+4
+5
+2
+o
+87
++2
+30 bis unter 45
+3
+4
+7
+3
+2
+81
++1
+45 bis unter 60
+2
+12
+13
+6
+2
+63
++1
+60 bis unter 75
+1
+4
+7
+6
+2
+81
+-2
+75 und älter
+0
+2
+4
+5
+1
+88
+-2
+Haushaltstyp
+Einpersonenhaushalt
+1
+2
+4
+3
+1
+89
+-1
+Mehrpersonen ohne Kind
+1
+4
+5
+4
+1
+85
+-0
+Mehrpersonen mit Kind(ern)
+4
+12
+16
+9
+3
+56
++2
+Alleinerziehende
+5
+25
+15
+12
+3
+40
++9
+Berufstätigkeit
+ganztags berufstätig
+2
+6
+8
+9
+2
+77
++0
+teilzeitbeschäftigt
+1
+7
+6
+5
+2
+75
+-0
+Schüler_in / Student_in
+1
+4
+3
+1
+o
+90
++2
+nicht berufstätig
+2
+4
+8
+5
+1
+81
++0
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+2
+9
+5
+2
+80
+-2
+Mittlere Reife/Realschulabschluss
+2
+3
+8
+9
+2
+80
+-1
+Abitur/ (Fach-)Hochschulreife
+1
+9
+7
+5
+2
+80
++0
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+5
+9
+2
+1
+79
++5
+Lehre (auch duales System)
+1
+4
+8
+7
+1
+79
+-2
+Fachschule/Fachhochschule/BA
+2
+5
+9
+5
+2
+79
++1
+Hochschulabschluss, Promotion
+1
+6
+8
+5
+1
+79
++0
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+5
+7
+5
+2
+80
+-1
+Deutsche mit Migrationshintergrund
+2
+6
+7
+5
+0
+80
++2
+Ausländer_innen
+5
+7
+9
+3
+1
+75
++6
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+2
+5
+3
+o
+89
++1
+5 bis unter 15 Jahre
+2
+5
+6
+2
+1
+84
++2
+15 Jahre und länger
+1
+7
+10
+7
+2
+73
+-0
+seit Geburt
+3
+6
+6
+9
+2
+73
++0
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+4
+7
+5
+1
+81
++1
+2. Quartil
+2
+6
+8
+4
+1
+79
++1
+3. Quartil
+1
+8
+8
+9
+1
+75
++1
+4. Quartil (höchstes Einkommen)
+1
+4
+6
+5
+2
+83
+-1
+Durchschnitt
+insgesamt
+2
+5
+8
+5
+1
+79
++0
+Anzahl
+insgesamt
+40
+137
+193
+122
+37
+2022
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+25
+
+---
+
+## Page 24
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Kindergärten und Kindertagesstätten -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+8
+10
+7
+3
+70
++0
+männlich (inkl. divers)
+2
+10
+10
+8
+3
+69
++0
+Altersgruppen
+16 bis unter 30
+1
+4
+6
+4
+1
+83
++0
+30 bis unter 45
+4
+10
+13
+13
+4
+56
+-1
+45 bis unter 60
+2
+13
+15
+9
+3
+61
++1
+60 bis unter 75
+1
+8
+7
+7
+2
+75
++0
+75 und älter
+2
+6
+5
+4
+2
+81
++1
+Haushaltstyp
+Einpersonenhaushalt
+1
+3
+5
+4
+1
+85
+-1
+Mehrpersonen ohne Kind
+1
+6
+5
+5
+2
+80
+-0
+Mehrpersonen mit Kind(ern)
+6
+20
+27
+19
+7
+21
++1
+Alleinerziehende
+4
+32
+30
+9
+2
+26
++14
+Berufstätigkeit
+ganztags berufstätig
+2
+9
+10
+8
+3
+69
+-0
+teilzeitbeschäftigt
+3
+13
+16
+10
+5
+54
+-1
+Schüler_in/Student_in
+0
+3
+4
+4
+2
+86
+-2
+nicht berufstätig
+3
+8
+8
+9
+2
+73
++1
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+9
+6
+7
+3
+72
+-1
+Mittlere Reife/Realschulabschluss
+2
+6
+8
+6
+3
+71
+-2
+Abitur/ (Fach-)Hochschulreife
+2
+9
+11
+7
+3
+68
+-0
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+7
+5
+5
+2
+77
++3
+Lehre (auch duales System)
+1
+7
+10
+8
+3
+71
+-2
+Fachschule/Fachhochschule/BA
+3
+8
+10
+7
+3
+89
++0
+Hochschulabschluss, Promotion
+2
+10
+11
+7
+3
+67
+-0
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+8
+9
+8
+3
+70
+-1
+Deutsche mit Migrationshintergrund
+3
+9
+12
+4
+3
+69
++2
+Ausländer_innen
+6
+11
+11
+7
+3
+61
++5
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+3
+5
+6
+1
+82
++0
+5 bis unter 15 Jahre
+3
+8
+10
+9
+4
+67
+-2
+15 Jahre und länger
+2
+12
+12
+6
+3
+65
++2
+seit Geburt
+1
+10
+11
+10
+3
+64
+-2
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+6
+9
+6
+2
+75
++2
+2. Quartil
+2
+11
+11
+8
+2
+66
++2
+3. Quartil
+2
+12
+14
+12
+4
+56
+-1
+4. Quartil (höchstes Einkommen)
+1
+7
+8
+6
+2
+76
+-1
+Durchschnitt
+insgesamt
+2
+9
+10
+7
+3
+69
+-0
+Anzahl
+insgesamt
+56
+220
+251
+187
+73
+1765
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+26
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 25
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Spielplätze -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+8
+24
+15
+4
+o
+49
++17
+männlich (inkl. divers)
+6
+25
+16
+5
+1
+48
++15
+Altersgruppen
+16 bis unter 30
+6
+19
+10
+3
+1
+62
++13
+30 bis unter 45
+11
+31
+15
+4
+1
+38
++24
+45 bis unter 60
+6
+28
+18
+6
+1
+42
++16
+60 bis unter 75
+5
+20
+20
+5
+1
+49
++11
+75 und älter
+3
+17
+16
+2
+1
+60
++10
+Haushaltstyp
+Einpersonenhaushalt
+5
+16
+12
+3
+1
+64
++11
+Mehrpersonen ohne Kind
+5
+20
+15
+4
+o
+55
++13
+Mehrpersonen mit Kind(ern)
+14
+46
+23
+5
+2
+10
++32
+Alleinerziehende
+16
+43
+24
+8
+o
+9
++33
+Berufstätigkeit
+ganztags berufstätig
+6
+26
+16
+4
+1
+47
++17
+teilzeitbeschäftigt
+9
+31
+16
+5
+1
+37
++22
+Schüler_in /Student_in
+5
+18
+8
+2
+1
+66
++13
+nicht berufstätig
+6
+19
+17
+5
+1
+52
++12
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+14
+21
+3
+1
+57
++8
+Mittlere Reife/Realschulabschluss
+5
+16
+21
+9
+1
+51
++8
+Abitur/ (Fach-)Hochschulreife
+7
+27
+14
+4
+1
+47
++18
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+7
+19
+14
+2
+2
+56
++14
+Lehre (auch duales System)
+5
+16
+19
+6
+1
+54
++9
+Fachschule/Fachhochschule/BA
+9
+24
+17
+6
+1
+47
++15
+Hochschulabschluss, Promotion
+8
+29
+14
+4
+0
+45
++20
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+24
+15
+4
+1
+51
++15
+Deutsche mit Migrationshintergrund
+8
+26
+18
+3
+1
+43
++19
+Ausländer_innen
+12
+25
+18
+5
+1
+38
++21
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+18
+11
+3
+o
+62
++13
+5 bis unter 15 Jahre
+10
+28
+14
+4
+1
+44
++21
+15 Jahre und länger
+9
+27
+18
+5
+1
+44
++16
+seit Geburt
+6
+23
+20
+5
+2
+44
++13
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+19
+15
+4
+1
+55
++13
+2. Quartil
+8
+25
+15
+4
+1
+48
++18
+3. Quartil
+8
+33
+19
+4
+o
+35
++22
+4. Quartil (höchstes Einkommen)
+5
+25
+14
+4
+o
+51
++16
+Durchschnitt
+insgesamt
+7
+24
+16
+4
+1
+48
+Anzahl
++16
+insgesamt
+170
+617
+400
+111
+18
+1235
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+27
+
+---
+
+## Page 26
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Treffpunkte / Einrichtungen für die Jugend -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+8
+10
+8
+4
+69
+-3
+männlich (inkl. divers)
+1
+7
+16
+10
+3
+63
+-3
+Altersgruppen
+16 bis unter 30
+2
+7
+10
+7
+3
+71
+-1
+30 bis unter 45
+2
+7
+10
+9
+4
+68
+-2
+45 bis unter 60
+1
+9
+18
+12
+5
+54
+-5
+60 bis unter 75
+1
+7
+14
+10
+2
+66
+-3
+75 und älter
+1
+3
+12
+8
+2
+74
+-4
+Haushaltstyp
+Einpersonenhaushalt
+1
+6
+6
+6
+2
+77
+-1
+Mehrpersonen ohne Kind
+1
+7
+12
+9
+4
+68
+-4
+Mehrpersonen mit Kind(ern)
+2
+12
+19
+14
+6
+47
+-5
+Alleinerziehende
+2
+18
+18
+8
+14
+41
+-7
+Berufstätigkeit
+ganztags berufstätig
+2
+8
+13
+9
+3
+65
+-2
+teilzeitbeschäftigt
+0
+8
+12
+12
+6
+62
+-7
+Schüler_in /Student_in
+2
+8
+12
+7
+3
+68
+-1
+nicht berufstätig
+2
+6
+12
+6
+3
+69
+-3
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+6
+14
+8
+5
+99
+-5
+Mittlere Reife/ Realschulabschluss
+2
+9
+17
+8
+5
+64
+-4
+Abitur/ (Fach-)Hochschulreife
+1
+7
+11
+10
+4
+67
+-4
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+9
+12
+7
+6
+61
+-1
+Lehre (auch duales System)
+1
+6
+14
+10
+3
+65
+-4
+Fachschule/Fachhochschule/BA
+2
+7
+14
+10
+3
+64
+-2
+Hochschulabschluss, Promotion
+1
+8
+11
+9
+4
+68
+-4
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+o
+7
+13
+9
+4
+67
+-5
+Deutsche mit Migrationshintergrund
+3
+7
+12
+10
+4
+64
+-2
+Ausländer_innen
+9
+12
+14
+7
+2
+59
++6
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+7
+9
+5
+1
+76
++1
+5 bis unter 15 Jahre
+1
+6
+8
+8
+4
+72
+-4
+15 Jahre und länger
+1
+8
+16
+11
+5
+60
+-5
+seit Geburt
+1
+9
+19
+11
+5
+54
+-5
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+7
+14
+9
+4
+63
+-3
+2. Quartil
+1
+8
+14
+9
+5
+63
+-4
+3. Quartil
+0
+10
+13
+12
+2
+62
+-3
+4. Quartil (höchstes Einkommen)
+1
+4
+10
+7
+3
+74
+-3
+Durchschnitt
+insgesamt
+1
+7
+Anzahl
+13
+9
+4
+66
+-3
+insgesamt
+36
+191
+322
+232
+95
+1676
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+28
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 27
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Treffpunkte / Beratungsstellen für Senior_innen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+8
+9
+4
+1
+76
++2
+männlich (inkl. divers)
+1
+6
+11
+4
+1
+77
++1
+Altersgruppen
+16 bis unter 30
+1
+3
+3
+2
+0
+91
++1
+30 bis unter 45
+1
+3
+3
+3
+1
+89
++1
+45 bis unter 60
+1
+6
+6
+5
+2
+77
+-0
+60 bis unter 75
+1
+14
+20
+8
+1
+55
++2
+75 und älter
+3
+14
+25
+8
+2
+47
++4
+Haushaltstyp
+Einpersonenhaushalt
+2
+8
+12
+5
+1
+71
++2
+Mehrpersonen ohne Kind
+1
+8
+10
+4
+1
+76
++1
+Mehrpersonen mit Kind(ern)
+1
+2
+7
+2
+1
+87
+-0
+Alleinerziehende
+2
+15
+8
+12
+2
+61
++1
+Berufstätigkeit
+ganztags berufstätig
+1
+6
+6
+3
+1
+83
++1
+teilzeitbeschäftigt
+1
+5
+6
+4
+1
+83
++0
+Schüler_in / Student_in
+1
+3
+4
+1
+o
+91
++1
+nicht berufstätig
+2
+11
+19
+7
+2
+58
++2
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+12
+21
+8
+4
+52
++1
+Mittlere Reife/ Realschulabschluss
+3
+6
+14
+9
+1
+68
++0
+Abitur/ (Fach-)Hochschulreife
+1
+6
+8
+3
+1
+81
++1
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+2
+6
+7
+4
+2
+79
++1
+Lehre (auch duales System)
+3
+9
+15
+7
+1
+65
++2
+Fachschule/Fachhochschule/BA
+1
+5
+13
+6
+2
+73
+L-
+Hochschulabschluss, Promotion
+1
+7
+7
+2
+1
+82
++3
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+7
+10
+5
+1
+76
++1
+Deutsche mit Migrationshintergrund
+3
+7
+10
+5
+1
+74
++3
+Ausländer_innen
+3
+5
+8
+2
+1
+81
++4
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+3
+4
+1
+0
+91
++1
+5 bis unter 15 Jahre
+1
+4
+4
+2
+1
+88
++1
+15 Jahre und länger
+2
+11
+15
+6
+2
+65
++2
+seit Geburt
+2
+8
+14
+8
+2
+65
++0
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+6
+12
+5
+2
+74
++1
+2. Quartil
+2
+6
+13
+6
+1
+70
++2
+3. Quartil
+1
+7
+8
+2
+1
+80
++2
+4. Quartil (höchstes Einkommen)
+1
+7
+7
+3
+1
+82
++2
+Durchschnitt
+insgesamt
+1
+7
+10
+4
+1
+76
++1
+Anzahl
+insgesamt
+34
+178
+250
+113
+31
+1945
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+29
+
+---
+
+## Page 28
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Angebote für Zugewanderte (Sprachkurse, Treffs) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+8
+6
+5
+2
+73
++2
+männlich (inkl. divers)
+2
+6
+10
+6
+3
+74
+-1
+Altersgruppen
+16 bis unter 30
+2
+10
+9
+5
+1
+72
++3
+30 bis unter 45
+2
+8
+6
+7
+3
+70
+-0
+45 bis unter 60
+2
+7
+8
+5
+3
+76
+-1
+60 bis unter 75
+1
+8
+13
+4
+1
+73
++2
+75 und älter
+2
+3
+10
+5
+2
+78
+-1
+Haushaltstyp
+Einpersonenhaushalt
+2
+7
+9
+5
+3
+73
++1
+Mehrpersonen ohne Kind
+2
+7
+10
+5
+2
+74
++1
+Mehrpersonen mit Kind(ern)
+1
+6
+9
+7
+3
+73
+-2
+Alleinerziehende
+4
+23
+8
+6
+o
+59
++12
+Berufstätigkeit
+ganztags berufstätig
+2
+7
+9
+7
+2
+73
+-0
+teilzeitbeschäftigt
+1
+7
+10
+5
+2
+75
+-0
+Schüler_in /Student_in
+2
+8
+10
+9
+2
+72
++1
+nicht berufstätig
+3
+8
+10
+5
+2
+72
++2
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+5
+10
+4
+1
+77
++2
+Mittlere Reife/Realschulabschluss
+2
+4
+8
+5
+3
+77
+-2
+Abitur/ (Fach-)Hochschulreife
+1
+7
+9
+5
+2
+76
++1
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+3
+9
+7
+9
+3
+72
++2
+Lehre (auch duales System)
+2
+5
+9
+4
+2
+78
+L+
+Fachschule/Fachhochschule/BA
+3
+7
+12
+5
+3
+71
++0
+Hochschulabschluss, Promotion
+1
+8
+9
+6
+1
+75
++1
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+5
+8
+5
+2
+79
+-0
+Deutsche mit Migrationshintergrund
+4
+10
+13
+5
+3
+65
++3
+Ausländer_innen
+7
+19
+17
+11
+5
+41
++6
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+10
+10
+6
+2
+70
++2
+5 bis unter 15 Jahre
+1
+10
+10
+9
+2
+72
++1
+15 Jahre und länger
+1
+6
+9
+9
+1
+76
+-0
+seit Geburt
+2
+4
+10
+3
+3
+78
+-0
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+7
+12
+5
+4
+67
++1
+2. Quartil
+1
+8
+12
+6
+2
+72
++0
+3. Quartil
+1
+9
+8
+8
+1
+73
+-0
+4. Quartil (höchstes Einkommen)
+1
+6
+8
+5
+1
+78
++1
+Durchschnitt
+insgesamt
+Anzahl
+2
+7
+10
+6
+2
+73
++1
+insgesamt
+49
+189
+244
+143
+55
+1872
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+30
+Stadt Freiburg i.Br. I Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 29
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Beratungsstellen (z.B. Erziehung, Sucht) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+16
+10
+3
+1
+66
++9
+männlich (inkl. divers)
+2
+11
+10
+3
+1
+72
++5
+Altersgruppen
+16 bis unter 30
+3
+14
+9
+2
+1
+70
++8
+30 bis unter 45
+3
+17
+9
+5
+1
+64
++8
+45 bis unter 60
+2
+16
+11
+4
+2
+65
++6
+60 bis unter 75
+2
+11
+13
+3
+1
+70
++5
+75 und älter
+4
+6
+8
+2
+0
+81
++6
+Haushaltstyp
+Einpersonenhaushalt
+3
+11
+11
+4
+1
+71
++6
+Mehrpersonen ohne Kind
+2
+14
+6
+3
+1
+71
++7
+Mehrpersonen mit Kind(ern)
+3
+17
+12
+5
+2
+61
++8
+Alleinerziehende
+8
+30
+6
+5
+6
+43
++15
+Berufstätigkeit
+ganztags berufstätig
+2
+13
+8
+4
+1
+72
++6
+teilzeitbeschäftigt
+3
+22
+12
+4
+1
+58
++11
+Schüler_in /Student_in
+3
+13
+10
+3
+2
+70
++6
+nicht berufstätig
+3
+10
+11
+3
+1
+72
++6
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+5
+10
+3
+2
+76
++3
+Mittlere Reife/Realschulabschluss
+3
+8
+10
+5
+2
+72
++3
+Abitur/ (Fach-)Hochschulreife
+2
+16
+10
+3
+1
+68
++8
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+9
+9
+4
+1
+70
++7
+Lehre (auch duales System)
+3
+13
+10
+3
+1
+70
++6
+Fachschule/Fachhochschule/BA
+4
+11
+11
+4
+1
+69
++6
+Hochschulabschluss, Promotion
+2
+17
+10
+3
+1
+68
++8
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+15
+10
+3
+1
+70
++7
+Deutsche mit Migrationshintergrund
+3
+11
+12
+5
+2
+67
++4
+Ausländer_innen
+5
+13
+11
+4
+1
+65
++8
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+11
+9
+3
+1
+74
++7
+5 bis unter 15 Jahre
+3
+18
+8
+4
+1
+65
++9
+15 Jahre und länger
+2
+14
+12
+3
+1
+67
++6
+seit Geburt
+3
+12
+6
+4
+1
+71
++5
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+13
+12
+3
+2
+99
++6
+2. Quartil
+3
+16
+10
+4
+1
+99
++8
+3. Quartil
+3
+18
+11
+4
+1
+64
++9
+4. Quartil (hõchstes Einkommen)
+2
+14
+8
+3
+1
+73
++7
+Durchschnitt
+insgesamt
+3
+14
+10
+3
+1
+69
++7
+Anzahl
+insgesamt
+70
+353
+255
+89
+29
+1756
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+31
+
+---
+
+## Page 30
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Schwimmbäder -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+11
+36
+22
+11
+3
+18
++21
+männlich (inkl. divers)
+8
+36
+22
+12
+4
+18
++16
+Altersgruppen
+16 bis unter 30
+12
+38
+18
+12
+2
+18
++24
+30 bis unter 45
+13
+41
+23
+6
+3
+12
++26
+45 bis unter 60
+7
+36
+27
+13
+5
+12
++14
+60 bis unter 75
+6
+31
+22
+15
+4
+22
++10
+75 und älter
+4
+27
+19
+9
+5
+35
++8
+Haushaltstyp
+Einpersonenhaushalt
+8
+33
+23
+11
+3
+22
++17
+Mehrpersonen ohne Kind
+9
+35
+20
+13
+4
+19
++16
+Mehrpersonen mit Kind(ern)
+12
+45
+24
+10
+3
+6
++26
+Alleinerziehende
+17
+29
+35
+7
+5
+7
++23
+Berufstätigkeit
+ganztags berufstätig
+10
+37
+24
+12
+4
+14
++18
+teilzeitbeschäftigt
+11
+41
+25
+|↓
+3
+9
++23
+Schüler_in/Student_in
+12
+41
+14
+10
+2
+22
++25
+nicht berufstätig
+7
+30
+21
+12
+4
+26
++13
+Höchster Schulabschluss
+Volks-/Hauptschule
+6
+21
+21
+15
+5
+33
++4
+Mittlere Reife/Realschulabschluss
+6
+24
+27
+13
+7
+22
++4
+Abitur/ (Fach-)Hochschulreife
+10
+40
+21
+11
+3
+14
++22
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+32
+16
+11
+4
+28
++15
+Lehre (auch duales System)
+5
+30
+22
+16
+6
+21
++7
+Fachschule/Fachhochschule/BA
+10
+31
+26
+12
+4
+18
++15
+Hochschulabschluss, Promotion
+11
+43
+21
+10
+2
+13
++26
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+37
+22
+12
+4
+16
++17
+Deutsche mit Migrationshintergrund
+8
+33
+27
+6
+3
+19
++18
+Ausländer_innen
+15
+34
+17
+8
+1
+25
++26
+Wohndauer in Freiburg
+unter 5 Jahre
+10
+43
+18
+8
+3
+17
++25
+5 bis unter 15 Jahre
+14
+39
+20
+9
+2
+16
++28
+15 Jahre und länger
+7
+32
+25
+14
+4
+18
++13
+seit Geburt
+5
+32
+24
+15
+7
+16
++7
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+9
+34
+18
+10
+3
+26
++18
+2. Quartil
+12
+31
+21
+13
+4
+18
++17
+3. Quartil
+7
+42
+24
+13
+3
+11
++19
+4. Quartil (hõchstes Einkommen)
+10
+42
+23
+11
+2
+13
++23
+Durchschnitt
+insgesamt
+Anzahl
+9
+36
+22
+12
+3
+18
++18
+insgesamt
+240
+918
+561
+294
+87
+451
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+32
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 31
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Sportförderung (Vereine und Sportanlagen) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+27
+18
+7
+2
+40
++15
+männlich (inkl. divers)
+5
+29
+19
+6
+3
+38
++14
+Altersgruppen
+16 bis unter 30
+8
+32
+17
+9
+2
+36
++19
+30 bis unter 45
+7
+30
+19
+8
+2
+33
++16
+45 bis unter 60
+6
+29
+21
+8
+2
+33
++15
+60 bis unter 75
+3
+26
+17
+6
+2
+47
++12
+75 und älter
+2
+17
+18
+2
+2
+59
++7
+Haushaltstyp
+Einpersonenhaushalt
+5
+24
+16
+6
+1
+49
++13
+Mehrpersonen ohne Kind
+5
+29
+18
+6
+3
+40
++14
+Mehrpersonen mit Kind(ern)
+8
+32
+24
+10
+3
+23
++16
+Alleinerziehende
+8
+45
+12
+3
+10
+21
++20
+Berufstätigkeit
+ganztags berufstätig
+7
+29
+19
+8
+3
+35
++15
+teilzeitbeschäftigt
+6
+31
+21
+7
+1
+34
++16
+Schüler_in /Student_in
+9
+36
+14
+6
+2
+33
++22
+nicht berufstätig
+3
+22
+18
+5
+2
+50
++9
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+21
+18
+6
+5
+46
++7
+Mittlere Reife/Realschulabschluss
+4
+18
+22
+8
+3
+46
++5
+Abitur/ (Fach-)Hochschulreife
+6
+31
+18
+7
+2
+37
++16
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+30
+14
+9
+2
+43
++17
+Lehre (auch duales System)
+4
+22
+22
+7
+3
+42
++9
+Fachschule/Fachhochschule/BA
+5
+24
+20
+7
+2
+41
++12
+Hochschulabschluss, Promotion
+6
+33
+17
+7
+2
+35
++18
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+5
+28
+18
+7
+2
+40
++14
+Deutsche mit Migrationshintergrund
+7
+28
+23
+5
+3
+34
++16
+Ausländer_innen
+8
+30
+15
+9
+3
+37
++18
+Wohndauer in Freiburg
+unter 5 Jahre
+6
+32
+17
+4
+1
+39
++18
+5 bis unter 15 Jahre
+8
+29
+18
+8
+1
+36
++17
+15 Jahre und länger
+4
+27
+19
+9
+2
+42
++13
+seit Geburt
+5
+25
+22
+6
+4
+34
++9
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+27
+15
+6
+3
+43
++14
+2. Quartil
+6
+27
+21
+9
+1
+39
++15
+3. Quartil
+5
+30
+20
+6
+2
+34
++14
+4. Quartil (höchstes Einkommen)
+6
+33
+17
+7
+2
+36
++17
+Durchschnitt
+insgesamt
+6
+28
+18
+7
+2
+39
++14
+Anzahl
+insgesamt
+144
+716
+471
+168
+54
+999
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+23
+
+---
+
+## Page 32
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Förderung von freiwilligem Engagement -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden
+hunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+18
+17
+6
+1
+55
++8
+männlich (inkl. divers)
+2
+16
+15
+6
+2
+58
++5
+Altersgruppen
+16 bis unter 30
+3
+20
+14
+5
+2
+56
++9
+30 bis unter 45
+4
+16
+15
+9
+2
+58
++7
+45 bis unter 60
+3
+18
+18
+7
+2
+51
++7
+60 bis unter 75
+2
+17
+19
+6
+2
+52
++4
+75 und älter
+2
+12
+13
+2
+2
+69
++4
+Haushaltstyp
+Einpersonenhaushalt
+3
+15
+16
+9
+1
+59
++6
+Mehrpersonen ohne Kind
+3
+19
+15
+6
+2
+55
++7
+Mehrpersonen mit Kind(ern)
+2
+15
+18
+7
+2
+55
++4
+Alleinerziehende
+o
+29
+14
+12
+3
+42
++5
+Berufstätigkeit
+ganztags berufstätig
+3
+16
+16
+7
+2
+56
++6
+teilzeitbeschäftigt
+3
+16
+19
+8
+2
+53
++6
+Schüler_in /Student_in
+2
+22
+13
+9
+1
+55
++10
+nicht berufstätig
+2
+16
+15
+5
+2
+60
++5
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+10
+17
+4
+4
+62
++1
+Mittlere Reife/ Realschulabschluss
+3
+8
+19
+5
+2
+62
++2
+Abitur/ (Fach-)Hochschulreife
+3
+19
+15
+7
+2
+54
++7
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+3
+18
+13
+4
+1
+61
++9
+Lehre (auch duales System)
+3
+11
+20
+6
+3
+57
++3
+Fachschule/Fachhochschule/BA
+2
+15
+16
+7
+2
+57
++4
+Hochschulabschluss, Promotion
+3
+20
+14
+7
+1
+54
++9
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+18
+16
+7
+2
+55
++6
+Deutsche mit Migrationshintergrund
+3
+12
+16
+4
+2
+62
++4
+Ausländer_innen
+4
+17
+14
+5
+2
+58
++9
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+19
+14
+4
+1
+59
++9
+5 bis unter 15 Jahre
+4
+16
+15
+7
+1
+57
++8
+15 Jahre und länger
+2
+18
+18
+6
+2
+54
++6
+seit Geburt
+3
+14
+16
+8
+4
+56
++2
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+16
+17
+6
+2
+55
++6
+2. Quartil
+3
+17
+17
+6
+2
+54
++6
+3. Quartil
+3
+17
+16
+5
+2
+57
++7
+4. Quartil (höchstes Einkommen)
+2
+19
+15
+8
+o
+56
++8
+Durchschnitt
+insgesamt
+3
+17
+16
+6
+2
+56
++6
+Anzahl
+insgesamt
+72
+432
+406
+158
+47
+1437
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+34
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 33
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Förderung von Barrierefreiheit (Bauen und Kommunikation) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+8
+16
+12
+4
+59
+-4
+männlich (inkl. divers)
+2
+11
+14
+8
+2
+64
++1
+Altersgruppen
+16 bis unter 30
+1
+10
+13
+12
+2
+62
+-2
+30 bis unter 45
+3
+10
+12
+6
+2
+64
++1
+45 bis unter 60
+1
+10
+15
+10
+3
+61
+-2
+60 bis unter 75
+1
+10
+20
+11
+3
+55
+-2
+75 und älter
+1
+6
+20
+10
+4
+60
+-5
+Haushaltstyp
+Einpersonenhaushalt
+1
+9
+16
+9
+3
+62
+-2
+Mehrpersonen ohne Kind
+2
+11
+13
+11
+3
+60
+L-
+Mehrpersonen mit Kind(ern)
+2
+8
+15
+8
+3
+65
+-1
+Alleinerziehende
+3
+14
+16
+21
+4
+43
+-5
+Berufstätigkeit
+ganztags berufstätig
+2
+11
+13
+8
+3
+63
++1
+teilzeitbeschäftigt
+1
+8
+17
+12
+3
+59
+-4
+Schüler_in /Student_in
+1
+12
+12
+10
+2
+63
+-1
+nicht berufstätig
+2
+7
+18
+11
+3
+59
+-3
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+6
+21
+7
+4
+60
+-2
+Mittlere Reife/ Realschulabschluss
+2
+3
+22
+10
+5
+58
+-6
+Abitur/ (Fach-)Hochschulreife
+1
+10
+13
+11
+3
+62
+-1
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+8
+14
+9
+2
+62
++1
+Lehre (auch duales System)
+1
+7
+19
+6
+3
+61
+-3
+Fachschule/Fachhochschule/BA
+1
+9
+16
+13
+3
+59
+-4
+Hochschulabschluss, Promotion
+1
+11
+13
+10
+2
+63
+-0
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+9
+15
+10
+3
+61
+-3
+Deutsche mit Migrationshintergrund
+3
+10
+14
+11
+2
+59
++0
+Ausländer_innen
+4
+12
+13
+7
+3
+62
++3
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+12
+12
+10
+2
+63
++0
+5 bis unter 15 Jahre
+2
+8
+13
+8
+3
+99
+-0
+15 Jahre und länger
+1
+9
+17
+11
+3
+59
+-2
+seit Geburt
+2
+8
+16
+14
+4
+55
+-5
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+9
+16
+10
+3
+60
+-1
+2. Quartil
+1
+9
+17
+13
+2
+57
+-3
+3. Quartil
+1
+10
+14
+9
+3
+63
+-1
+4. Quartil (höchstes Einkommen)
+1
+12
+13
+8
+1
+64
++1
+Durchschnitt
+insgesamt
+2
+9
+15
+10
+3
+61
+-2
+Anzahl
+insgesamt
+38
+241
+383
+258
+70
+1560
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+35
+
+---
+
+## Page 34
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Wirtschafts- und Tourismusförderung, Messen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+zufrieden
+teils/teils
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+25
+16
+4
+1
+50
++15
+männlich (inkl. divers)
+3
+27
+18
+5
+1
+45
++13
+Altersgruppen
+16 bis unter 30
+5
+28
+13
+4
+0
+49
++17
+30 bis unter 45
+5
+25
+17
+4
+1
+48
++15
+45 bis unter 60
+5
+26
+18
+3
+1
+46
++15
+60 bis unter 75
+2
+27
+21
+7
+1
+43
++11
+75 und älter
+1
+23
+17
+2
+2
+54
++10
+Haushaltstyp
+Einpersonenhaushalt
+4
+26
+19
+4
+0
+46
++15
+Mehrpersonen ohne Kind
+4
+26
+17
+5
+1
+47
++13
+Mehrpersonen mit Kind(ern)
+5
+24
+15
+3
+1
+52
++14
+Alleinerziehende
+9
+34
+12
+3
+o
+41
++25
+Berufstätigkeit
+ganztags berufstätig
+5
+29
+19
+5
+1
+42
++16
+teilzeitbeschäftigt
+4
+23
+15
+2
+1
+55
++13
+Schüler_in /Student_in
+5
+28
+9
+3
+o
+55
++18
+nicht berufstätig
+3
+24
+19
+6
+1
+47
++11
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+20
+21
+4
+2
+51
++8
+Mittlere Reife/ Realschulabschluss
+3
+20
+28
+4
+1
+44
++10
+Abitur/ (Fach-)Hochschulreife
+5
+28
+15
+4
+1
+47
++16
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+24
+12
+5
+1
+53
++13
+Lehre (auch duales System)
+2
+25
+23
+4
+2
+45
++10
+Fachschule/Fachhochschule/BA
+4
+24
+19
+9
+0
+46
++13
+Hochschulabschluss, Promotion
+5
+28
+15
+3
+1
+49
++17
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+26
+17
+4
+1
+48
++14
+Deutsche mit Migrationshintergrund
+9
+27
+16
+7
+1
+44
++14
+Ausländer_innen
+5
+25
+20
+4
+1
+45
++15
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+27
+14
+3
+1
+53
++15
+5 bis unter 15 Jahre
+6
+26
+17
+3
+o
+47
++17
+15 Jahre und länger
+4
+25
+17
+5
+1
+47
++13
+seit Geburt
+3
+26
+22
+5
+1
+42
++12
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+23
+16
+5
+1
+50
++13
+2. Quartil
+4
+25
+17
+3
+o
+50
++15
+3. Quartil
+4
+29
+18
+3
+1
+45
++17
+4. Quartil (hõchstes Einkommen)
+4
+28
+20
+5
+1
+43
++15
+Durchschnitt
+insgesamt
+4
+26
+17
+4
+i
+48
++14
+Anzahl
+insgesamt
+106
+660
+438
+107
+25
+1215
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+36
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 35
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Kulturförderung (z.B. Bürgerhäuser, Kunst, Chöre) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+7
+32
+18
+6
+2
+35
++19
+männlich (inkl. divers)
+4
+28
+21
+6
+2
+40
++13
+Altersgruppen
+16 bis unter 30
+8
+33
+17
+5
+2
+35
++20
+30 bis unter 45
+7
+29
+18
+7
+2
+37
++16
+45 bis unter 60
+5
+29
+23
+5
+2
+37
++15
+60 bis unter 75
+4
+31
+22
+8
+1
+34
++15
+75 und älter
+4
+30
+16
+3
+1
+46
++17
+Haushaltstyp
+Einpersonenhaushalt
+4
+30
+21
+5
+1
+39
++16
+Mehrpersonen ohne Kind
+6
+31
+18
+6
+2
+36
++17
+Mehrpersonen mit Kind(ern)
+6
+29
+20
+5
+2
+38
++16
+Alleinerziehende
+9
+33
+20
+13
+5
+21
++14
+Berufstätigkeit
+ganztags berufstätig
+6
+28
+19
+5
+2
+39
++16
+teilzeitbeschäftigt
+5
+32
+20
+8
+2
+33
++15
+Schüler_in /Student_in
+6
+37
+15
+4
+2
+34
++24
+nicht berufstätig
+5
+28
+21
+6
+1
+39
++15
+Höchster Schulabschluss
+Volks-/Hauptschule
+5
+19
+19
+5
+1
+51
++10
+Mittlere Reife/Realschulabschluss
+4
+21
+22
+7
+1
+46
++10
+Abitur/ (Fach-)Hochschulreife
+6
+34
+19
+9
+2
+33
++19
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+8
+24
+14
+5
+1
+48
++17
+Lehre (auch duales System)
+4
+25
+21
+9
+1
+43
++12
+Fachschule/Fachhochschule/BA
+5
+29
+23
+6
+2
+35
++14
+Hochschulabschluss, Promotion
+7
+35
+18
+9
+2
+32
++20
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+6
+32
+19
+9
+1
+36
++17
+Deutsche mit Migrationshintergrund
+9
+23
+22
+5
+3
+41
++12
+Ausländer_innen
+7
+25
+21
+4
+3
+40
++15
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+34
+17
+4
+2
+38
++20
+5 bis unter 15 Jahre
+7
+30
+17
+8
+2
+36
++16
+15 Jahre und länger
+5
+31
+21
+5
+1
+36
++16
+seit Geburt
+5
+25
+20
+5
+2
+43
++12
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+28
+17
+7
+3
+40
++14
+2. Quartil
+6
+29
+19
+8
+2
+36
++15
+3. Quartil
+5
+34
+22
+5
+1
+33
++18
+4. Quartil (höchstes Einkommen)
+7
+32
+21
+4
+1
+36
++20
+Durchschnitt
+insgesamt
+6
+30
+19
+Anzahl
+6
+2
+37
++16
+insgesamt
+148
+766
+495
+149
+43
+951
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+37
+
+---
+
+## Page 36
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Theaterangebote (Städtische Bühnen und freie Theater) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+13
+41
+16
+4
+1
+24
++30
+männlich (inkl. divers)
+10
+38
+18
+3
+1
+30
++27
+Altersgruppen
+16 bis unter 30
+15
+41
+16
+2
+1
+27
++33
+30 bis unter 45
+13
+38
+17
+4
+1
+26
++28
+45 bis unter 60
+8
+43
+17
+4
+2
+26
++26
+60 bis unter 75
+10
+40
+20
+4
+1
+25
++27
+75 und älter
+12
+37
+15
+3
+o
+32
++29
+Haushaltstyp
+Einpersonenhaushalt
+10
+39
+15
+3
+o
+31
++28
+Mehrpersonen ohne Kind
+13
+41
+16
+3
+1
+26
++31
+Mehrpersonen mit Kind(ern)
+10
+39
+19
+5
+3
+24
++24
+Alleinerziehende
+13
+34
+24
+8
+2
+18
++23
+Berufstätigkeit
+ganztags berufstätig
+12
+36
+18
+4
+2
+29
++26
+teilzeitbeschäftigt
+11
+48
+15
+4
+2
+19
++31
+Schüler_in /Student_in
+17
+44
+12
+1
+0
+26
++37
+nicht berufstätig
+11
+37
+18
+4
+o
+30
++27
+Höchster Schulabschluss
+Volks-/Hauptschule
+7
+24
+20
+3
+1
+45
++16
+Mittlere Reife/ Realschulabschluss
+5
+30
+21
+4
+1
+38
++17
+Abitur/ (Fach-)Hochschulreife
+14
+45
+15
+3
+1
+22
++33
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+15
+33
+13
+2
+o
+37
++30
+Lehre (auch duales System)
+6
+34
+20
+4
+1
+35
++20
+Fachschule/Fachhochschule/BA
+10
+39
+19
+3
+2
+27
++26
+Hochschulabschluss, Promotion
+15
+46
+15
+4
+1
+20
++34
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+12
+42
+16
+3
+1
+25
++31
+Deutsche mit Migrationshintergrund
+10
+33
+19
+5
+3
+31
++21
+Ausländer_innen
+9
+29
+20
+4
+1
+38
++20
+Wohndauer in Freiburg
+unter 5 Jahre
+13
+39
+16
+2
+1
+29
++31
+5 bis unter 15 Jahre
+14
+43
+16
+3
+1
+23
++32
+15 Jahre und länger
+11
+42
+18
+4
+2
+23
++28
+seit Geburt
+7
+31
+17
+5
+1
+39
++19
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+9
+34
+16
+3
+2
+36
++23
+2. Quartil
+13
+41
+15
+4
+2
+26
++30
+3. Quartil
+10
+45
+18
+5
+o
+22
++30
+4. Quartil (höchstes Einkommen)
+15
+42
+16
+3
+1
+22
++34
+Durchschnitt
+insgesamt
+Anzahl
+12
+40
+17
+4
+1
+27
++28
+insgesamt
+299
+1009
+428
+92
+32
+692
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+38
+Stadt Freiburg i.Br. I Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 37
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Musikangebote (z.B. Musikschulen, Konzerte, Vereinszuschüsse) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+12
+36
+17
+6
+1
+27
++25
+männlich (inkl. divers)
+9
+33
+18
+5
+2
+32
++21
+Altersgruppen
+16 bis unter 30
+10
+34
+17
+6
+2
+31
++22
+30 bis unter 45
+11
+33
+19
+6
+2
+26
++22
+45 bis unter 60
+9
+38
+19
+5
+2
+28
++23
+60 bis unter 75
+10
+37
+18
+5
+1
+29
++25
+75 und älter
+14
+31
+11
+2
+1
+42
++28
+Haushaltstyp
+Einpersonenhaushalt
+10
+35
+14
+6
+1
+33
++24
+Mehrpersonen ohne Kind
+11
+35
+18
+5
+2
+29
++24
+Mehrpersonen mit Kind(ern)
+9
+34
+21
+7
+2
+26
++20
+Alleinerziehende
+11
+28
+26
+15
+5
+15
++13
+Berufstätigkeit
+ganztags berufstätig
+10
+35
+19
+5
+2
+29
++23
+teilzeitbeschäftigt
+9
+41
+17
+8
+3
+22
++22
+Schüler_in/Student_in
+11
+37
+15
+5
+1
+30
++26
+nicht berufstätig
+12
+30
+17
+6
+1
+35
++22
+Höchster Schulabschluss
+Volks-/Hauptschule
+5
+20
+19
+4
+3
+48
++10
+Mittlere Reife/ Realschulabschluss
+5
+25
+21
+8
+1
+41
++12
+Abitur/ (Fach-)Hochschulreife
+12
+39
+16
+6
+2
+24
++27
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+32
+12
+7
+2
+39
++19
+Lehre (auch duales System)
+5
+29
+19
+7
+1
+38
++15
+Fachschule/Fachhochschule/BA
+11
+33
+17
+5
+2
+31
++22
+Hochschulabschluss, Promotion
+13
+40
+18
+5
+2
+22
++29
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+11
+37
+17
+5
+2
+28
++25
+Deutsche mit Migrationshintergrund
+7
+25
+20
+7
+3
+37
++13
+Ausländer_innen
+10
+29
+17
+8
+1
+35
++19
+Wohndauer in Freiburg
+unter 5 Jahre
+11
+35
+15
+6
+1
+32
++25
+5 bis unter 15 Jahre
+10
+37
+18
+6
+3
+25
++22
+15 Jahre und länger
+11
+36
+19
+5
+1
+27
++26
+seit Geburt
+7
+28
+19
+6
+2
+39
++16
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+9
+30
+17
+6
+2
+36
++18
+2. Quartil
+11
+37
+17
+6
+2
+28
++24
+3. Quartil
+6
+38
+19
+7
+2
+24
++23
+4. Quartil (höchstes Einkommen)
+13
+38
+17
+5
+1
+27
++29
+Durchschnitt
+insgesamt
+10
+35
+Anzahl
+18
+6
+2
+30
++23
+insgesamt
+263
+885
+447
+150
+45
+761
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 38
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Städtische Museen und Stadtarchiv -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+12
+38
+16
+7
+1
+25
++27
+männlich (inkl. divers)
+9
+39
+17
+5
+1
+28
++25
+Altersgruppen
+16 bis unter 30
+8
+30
+19
+6
+3
+31
++16
+30 bis unter 45
+10
+38
+17
+6
+1
+24
++24
+45 bis unter 60
+11
+45
+16
+4
+1
+23
++30
+60 bis unter 75
+11
+45
+16
+4
+0
+24
++31
+75 undälter
+14
+39
+13
+o
+0
+34
++33
+Haushaltstyp
+Einpersonenhaushalt
+12
+38
+16
+6
+1
+28
++27
+Mehrpersonen ohne Kind
+10
+38
+17
+5
+1
+28
++25
+Mehrpersonen mit Kind(ern)
+10
+42
+17
+6
+2
+20
++25
+Alleinerziehende
+16
+41
+14
+8
+5
+17
++28
+Berufstätigkeit
+ganztags berufstätig
+11
+37
+18
+6
+1
+27
++26
+teilzeitbeschäftigt
+6
+45
+16
+7
+2
+22
++26
+Schüler_in /Student_in
+8
+35
+16
+6
+2
+29
++18
+nicht berufstätig
+12
+38
+16
+4
+1
+28
++28
+Höchster Schulabschluss
+Volks-/Hauptschule
+10
+27
+16
+3
+1
+44
++21
+Mittlere Reife/ Realschulabschluss
+9
+32
+19
+4
+1
+34
++23
+Abitur/ (Fach-)Hochschulreife
+11
+43
+16
+7
+2
+22
++27
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+31
+14
+9
+2
+37
++19
+Lehre (auch duales System)
+9
+35
+19
+3
+1
+33
++24
+Fachschule/Fachhochschule/BA
+10
+42
+15
+5
+1
+26
++28
+Hochschulabschluss, Promotion
+12
+43
+17
+7
+2
+20
++28
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+11
+41
+16
+6
+1
+25
++27
+Deutsche mit Migrationshintergrund
+11
+31
+19
+7
+1
+31
++23
+Ausländer_innen
+9
+32
+21
+5
+2
+31
++21
+Wohndauer in Freiburg
+unter 5 Jahre
+8
+31
+19
+7
+2
+32
++18
+5 bis unter 15 Jahre
+9
+38
+18
+8
+2
+25
++22
+15 Jahre und länger
+13
+43
+15
+4
+1
+23
++32
+seit Geburt
+10
+41
+15
+6
+o
+27
++27
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+31
+18
+6
+2
+34
++19
+2. Quartil
+13
+41
+15
+6
+2
+23
++29
+3. Quartil
+10
+43
+17
+7
+1
+22
++27
+4. Quartil (hõchstes Einkommen)
+12
+42
+19
+5
+1
+22
++30
+Durchschnitt
+insgesamt
+11
+39
+17
+6
+1
+26
++26
+Anzahl
+insgesamt
+270
+989
+432
+152
+35
+674
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+40
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 39
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Bildungseinrichtungen (z.B. Stadtbibliothek, Volkshochschule, Planetarium) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+19
+48
+13
+2
+0
+18
++41
+männlich (inkl. divers)
+14
+44
+15
+2
+1
+23
++34
+Altersgruppen
+16 bis unter 30
+16
+46
+14
+3
+1
+20
++37
+30 bis unter 45
+19
+43
+16
+3
+1
+19
++38
+45 bis unter 60
+14
+52
+13
+1
+1
+18
++39
+60 bis unter 75
+14
+49
+15
+2
+0
+20
++37
+75 und älter
+20
+40
+8
+0
+0
+31
++40
+Haushaltstyp
+Einpersonenhaushalt
+17
+41
+13
+3
+1
+25
++35
+Mehrpersonen ohne Kind
+15
+48
+14
+2
+0
+21
++38
+Mehrpersonen mit Kind(ern)
+20
+49
+17
+2
+2
+11
++42
+Alleinerziehende
+20
+51
+8
+8
+o
+14
++41
+Berufstätigkeit
+ganztags berufstätig
+15
+45
+15
+2
+1
+22
++35
+teilzeitbeschäftigt
+18
+52
+15
+2
+1
+12
++41
+Schüler_in / Student_in
+19
+44
+15
+2
+1
+20
++40
+nicht berufstätig
+17
+44
+12
+2
+o
+24
++37
+Höchster Schulabschluss
+Volks-/Hauptschule
+12
+32
+14
+3
+1
+39
++25
+Mittlere Reife/ Realschulabschluss
+12
+39
+20
+3
+1
+26
++29
+Abitur/ (Fach-)Hochschulreife
+18
+50
+13
+2
+1
+16
++41
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+15
+38
+14
+2
+1
+30
++31
+Lehre (auch duales System)
+12
+40
+19
+2
+0
+26
++31
+Fachschule/Fachhochschule/BA
+18
+45
+15
+2
+o
+19
++39
+Hochschulabschluss, Promotion
+19
+52
+11
+2
+1
+15
++43
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+16
+48
+14
+2
+1
+19
++38
+Deutsche mit Migrationshintergrund
+16
+40
+17
+4
+0
+23
++34
+Ausländer_innen
+18
+38
+15
+2
+1
+26
++35
+Wohndauer in Freiburg
+unter 5 Jahre
+16
+43
+13
+3
+1
+25
++35
+5 bis unter 15 Jahre
+16
+48
+15
+3
+1
+18
++37
+15 Jahre und länger
+18
+48
+14
+2
+1
+17
++40
+seit Geburt
+14
+44
+14
+3
+o
+25
++35
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+16
+40
+15
+3
+1
+25
++33
+2. Quartil
+18
+47
+13
+3
+o
+18
++39
+3. Quartil
+19
+45
+15
+2
+o
+19
++40
+4. Quartil (höchstes Einkommen)
+15
+53
+13
+1
+1
+17
++40
+Durchschnitt
+insgesamt
+16
+46
+14
+2
+1
+20
++37
+Anzahl
+insgesamt
+420
+1170
+363
+59
+19
+521
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+41
+
+---
+
+## Page 40
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Klimaschutz (Energiesparen, Wärmedämmung, CO2-Reduktion) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+26
+25
+8
+2
+33
++13
+männlich (inkl. divers)
+7
+28
+24
+10
+4
+27
++12
+Altersgruppen
+16 bis unter 30
+8
+33
+21
+9
+3
+26
++17
+30 bis unter 45
+7
+28
+22
+10
+3
+29
++14
+45 bis unter 60
+5
+25
+26
+11
+3
+30
++9
+60 bis unter 75
+4
+26
+30
+8
+3
+29
++11
+75 und älter
+5
+17
+24
+7
+2
+45
++9
+Haushaltstyp
+Einpersonenhaushalt
+6
+26
+25
+8
+2
+33
++13
+Mehrpersonen ohne Kind
+6
+29
+24
+10
+3
+29
++13
+Mehrpersonen mit Kind(ern)
+6
+25
+26
+10
+5
+28
++10
+Alleinerziehende
+18
+25
+12
+14
+5
+26
++19
+Berufstätigkeit
+ganztags berufstätig
+7
+29
+24
+6
+3
+29
++14
+teilzeitbeschäftigt
+5
+27
+26
+12
+3
+26
++9
+Schüler_in /Student_in
+8
+33
+21
+9
+4
+25
++16
+nicht berufstätig
+6
+22
+25
+8
+2
+36
++11
+Höchster Schulabschluss
+Volks-/Hauptschule
+7
+19
+24
+6
+1
+43
++12
+Mittlere Reife/Realschulabschluss
+4
+18
+30
+10
+4
+34
++5
+Abitur/ (Fach-)Hochschulreife
+6
+29
+24
+10
+3
+27
++13
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+27
+19
+11
+2
+31
++15
+Lehre (auch duales System)
+5
+21
+30
+7
+2
+34
++9
+Fachschule/Fachhochschule/BA
+9
+25
+25
+9
+4
+32
++10
+Hochschulabschluss, Promotion
+6
+31
+24
+10
+3
+27
++13
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+5
+27
+26
+10
+3
+29
++10
+Deutsche mit Migrationshintergrund
+7
+26
+23
+9
+o
+34
++16
+Ausländer_innen
+13
+29
+18
+4
+1
+35
++24
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+33
+21
+7
+2
+31
++18
+5 bis unter 15 Jahre
+6
+28
+25
+10
+4
+28
++11
+15 Jahre und länger
+6
+24
+26
+10
+3
+31
++10
+seit Geburt
+5
+26
+23
+11
+4
+30
++9
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+25
+22
+10
+3
+32
++13
+2. Quartil
+5
+27
+26
+9
+4
+28
++11
+3. Quartil
+4
+29
+27
+9
+3
+28
++11
+4. Quartil (höchstes Einkommen)
+9
+31
+25
+10
+3
+26
++13
+Durchschnitt
+insgesamt
+6
+27
+25
+9
+3
+30
++12
+Anzahl
+insgesamt
+159
+688
+625
+235
+74
+770
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+42
+Stadt Freiburg i.Br. I Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 41
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Naturschutz (z.B. Schutzgebiete, Artenschutz) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+7
+28
+23
+8
+3
+30
++14
+männlich (inkl. divers)
+7
+31
+24
+7
+3
+26
++17
+Altersgruppen
+16 bis unter 30
+9
+33
+18
+9
+3
+28
++18
+30 bis unter 45
+6
+31
+23
+8
+3
+26
++17
+45 bis unter 60
+9
+28
+26
+10
+3
+27
++12
+60 bis unter 75
+5
+30
+30
+7
+3
+26
++13
+75 und älter
+5
+24
+24
+7
+1
+39
++13
+Haushaltstyp
+Einpersonenhaushalt
+6
+29
+23
+7
+3
+32
++14
+Mehrpersonen ohne Kind
+7
+32
+23
+10
+2
+26
++16
+Mehrpersonen mit Kind(ern)
+9
+26
+27
+7
+4
+28
++15
+Alleinerziehende
+15
+32
+27
+9
+2
+15
++24
+Berufstätigkeit
+ganztags berufstätig
+8
+30
+25
+7
+3
+27
++16
+teilzeitbeschäftigt
+5
+32
+26
+8
+3
+25
++14
+Schüler_in /Student_in
+6
+30
+18
+12
+3
+27
++15
+nicht berufstätig
+7
+27
+23
+8
+2
+33
++14
+Höchster Schulabschluss
+Volks-/Hauptschule
+7
+26
+23
+7
+2
+37
++15
+Mittlere Reife/Realschulabschluss
+4
+24
+29
+5
+4
+33
++9
+Abitur/ (Fach-)Hochschulreife
+7
+31
+24
+9
+3
+26
++15
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+28
+18
+6
+3
+32
++16
+Lehre (auch duales System)
+5
+26
+26
+7
+3
+33
++12
+Fachschule/Fachhochschule/BA
+7
+28
+25
+6
+4
+31
++14
+Hochschulabschluss, Promotion
+8
+32
+23
+10
+3
+24
++16
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+6
+29
+25
+9
+3
+28
++12
+Deutsche mit Migrationshintergrund
+10
+29
+22
+7
+1
+31
++20
+Ausländer_innen
+16
+31
+16
+4
+1
+31
++29
+Wohndauer in Freiburg
+unter 5 Jahre
+10
+30
+22
+8
+2
+29
++19
+5 bis unter 15 Jahre
+7
+32
+23
+6
+3
+26
++16
+15 Jahre und länger
+9
+27
+27
+8
+3
+29
++12
+seit Geburt
+7
+31
+21
+7
+5
+29
++13
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+10
+26
+23
+9
+3
+30
++15
+2. Quartil
+7
+29
+25
+9
+4
+26
++12
+3. Quartil
+6
+30
+27
+7
+2
+28
++15
+4. Quartil (höchstes Einkommen)
+6
+36
+23
+8
+2
+24
++18
+Durchschnitt
+insgesamt
+7
+29
+Anzahl
+24
+8
+3
+28
++15
+insgesamt
+185
+751
+608
+208
+74
+726
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+43
+
+---
+
+## Page 42
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Parks und Grünanlagen -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+12
+44
+28
+6
+2
+9
++30
+männlich (inkl. divers)
+12
+45
+26
+7
+1
+9
++30
+Altersgruppen
+16 bis unter 30
+18
+49
+19
+9
+1
+6
++38
+30 bis unter 45
+15
+47
+24
+7
+1
+5
++34
+45 bis unter 60
+9
+38
+36
+9
+1
+8
++22
+60 bis unter 75
+7
+41
+31
+6
+2
+13
++23
+75 und älter
+10
+48
+23
+3
+o
+16
++32
+Haushaltstyp
+Einpersonenhaushalt
+12
+42
+28
+7
+2
+10
++28
+Mehrpersonen ohne Kind
+12
+46
+26
+7
+1
+8
++31
+Mehrpersonen mit Kind(ern)
+12
+46
+29
+9
+1
+6
++31
+Alleinerziehende
+17
+44
+23
+6
+4
+3
++30
+Berufstätigkeit
+ganztags berufstätig
+12
+43
+29
+7
+2
+7
++28
+teilzeitbeschäftigt
+12
+47
+27
+7
+1
+5
++30
+Schüler_in/Student_in
+20
+47
+20
+7
+1
+5
++39
+nicht berufstätig
+10
+43
+26
+5
+2
+15
++27
+Höchster Schulabschluss
+Volks-/Hauptschule
+11
+36
+28
+4
+1
+20
++26
+Mittlere Reife/ Realschulabschluss
+7
+33
+35
+7
+2
+16
++17
+Abitur/ (Fach-)Hochschulreife
+12
+49
+26
+7
+1
+5
++31
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+17
+39
+20
+7
+3
+14
++30
+Lehre (auch duales System)
+9
+37
+33
+7
+2
+13
++22
+Fachschule/Fachhochschule/BA
+10
+46
+27
+7
+1
+8
++29
+Hochschulabschluss, Promotion
+13
+48
+25
+7
+1
+6
++33
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+10
+46
+28
+7
+1
+8
++28
+Deutsche mit Migrationshintergrund
+15
+43
+23
+7
+2
+10
++31
+Ausländer_innen
+22
+36
+22
+4
+1
+15
++37
+Wohndauer in Freiburg
+unter 5 Jahre
+16
+49
+22
+5
+1
+7
++38
+5 bis unter 15 Jahre
+14
+48
+23
+7
+2
+7
++33
+15 Jahre und länger
+9
+41
+31
+7
+1
+10
++24
+seit Geburt
+10
+39
+32
+8
+3
+8
++23
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+16
+38
+26
+6
+2
+12
++31
+2. Quartil
+13
+42
+28
+8
+2
+8
++28
+3. Quartil
+10
+51
+26
+5
+1
+6
++32
+4. Quartil (hõchstes Einkommen)
+9
+49
+27
+8
+1
+6
++28
+Durchschnitt
+insgesamt
+12
+44
+27
+7
+2
+9
++29
+Anzahl
+insgesamt
+308
+1125
+687
+169
+39
+225
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+44
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 43
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Stadtwald (Waldpflege, Wegenetz, Erholungs- und Freizeitangebote) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+19
+44
+17
+3
+1
+17
++38
+männlich (inkl. divers)
+18
+47
+17
+4
+1
+13
++39
+Altersgruppen
+16 bis unter 30
+24
+42
+13
+2
+0
+19
++43
+30 bis unter 45
+22
+48
+15
+3
+1
+11
++44
+45 bis unter 60
+17
+45
+21
+4
+1
+12
++37
+60 bis unter 75
+13
+46
+19
+5
+2
+16
++32
+75 und älter
+13
+46
+18
+2
+1
+20
++35
+Haushaltstyp
+Einpersonenhaushalt
+16
+43
+21
+3
+1
+16
++35
+Mehrpersonen ohne Kind
+20
+46
+15
+3
+1
+15
++40
+Mehrpersonen mit Kind(ern)
+20
+49
+16
+3
+o
+12
++42
+Alleinerziehende
+27
+39
+19
+8
+o
+7
++42
+Berufstätigkeit
+ganztags berufstätig
+18
+46
+17
+3
+1
+14
++39
+teilzeitbeschäftigt
+21
+48
+15
+3
+1
+11
++43
+Schüler_in/Student_in
+25
+41
+14
+2
+o
+18
++44
+nicht berufstätig
+14
+44
+19
+4
+1
+17
++33
+Höchster Schulabschluss
+Volks-/Hauptschule
+11
+39
+22
+3
+2
+23
++27
+Mittlere Reife/Realschulabschluss
+13
+39
+26
+4
+1
+18
++29
+Abitur/ (Fach-)Hochschulreife
+20
+49
+15
+3
+1
+13
++42
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+18
+36
+18
+4
+2
+22
++31
+Lehre (auch duales System)
+13
+41
+24
+4
+o
+18
++32
+Fachschule/Fachhochschule/BA
+17
+50
+16
+4
+1
+13
++39
+Hochschulabschluss, Promotion
+23
+48
+14
+2
+1
+12
++45
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+18
+47
+17
+3
+1
+14
++40
+Deutsche mit Migrationshintergrund
+17
+37
+19
+6
+2
+19
++31
+Ausländer_innen
+22
+38
+18
+2
+1
+20
++39
+Wohndauer in Freiburg
+unter 5 Jahre
+21
+44
+14
+2
+o
+19
++41
+5 bis unter 15 Jahre
+23
+47
+14
+3
+1
+13
++44
+15 Jahre und länger
+16
+46
+19
+4
+1
+14
++36
+seit Geburt
+14
+45
+19
+4
+2
+16
++32
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+19
+36
+20
+4
+1
+19
++34
+2. Quartil
+19
+43
+19
+3
+2
+14
++38
+3. Quartil
+19
+50
+17
+2
+o
+12
++42
+4. Quartil (höchstes Einkommen)
+20
+53
+12
+3
+1
+11
++44
+Durchschnitt
+insgesamt
+18
+45
+17
+3
+1
+15
+Anzahl
++38
+insgesamt
+471
+1154
+432
+87
+24
+385
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+45
+
+---
+
+## Page 44
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Friedhöfe (z.B. Verwaltung, Pflege von Friedhofsanlagen) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+29
+8
+2
+0
+52
++22
+männlich (inkl. divers)
+7
+31
+9
+1
+0
+52
++22
+Altersgruppen
+16 bis unter 30
+7
+21
+4
+1
+0
+67
++18
+30 bis unter 45
+10
+25
+9
+1
+0
+59
++21
+45 bis unter 60
+7
+32
+10
+1
+1
+49
++22
+60 bis unter 75
+7
+38
+12
+4
+1
+37
++23
+75 und älter
+12
+43
+12
+3
+o
+30
++32
+Haushaltstyp
+Einpersonenhaushalt
+10
+30
+6
+2
+0
+49
++24
+Mehrpersonen ohne Kind
+7
+33
+7
+2
+1
+50
++22
+Mehrpersonen mit Kind(ern)
+8
+23
+9
+1
+0
+62
++19
+Alleinerziehende
+22
+28
+12
+3
+o
+34
++35
+Berufstätigkeit
+ganztags berufstätig
+8
+28
+8
+1
+o
+54
++21
+teilzeitbeschäftigt
+8
+29
+6
+1
+o
+55
++21
+Schüler_in / Student_in
+6
+20
+3
+1
+0
+67
++18
+nicht berufstätig
+9
+35
+11
+3
+1
+41
++25
+Höchster Schulabschluss
+Volks-/Hauptschule
+10
+33
+18
+4
+1
+33
++23
+Mittlere Reife/Realschulabschluss
+5
+34
+13
+4
+0
+45
++20
+Abitur/ (Fach-)Hochschulreife
+9
+29
+6
+1
+o
+55
++22
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+23
+7
+2
+1
+57
++20
+Lehre (auch duales System)
+7
+33
+14
+4
+o
+41
++22
+Fachschule/Fachhochschule/BA
+9
+31
+8
+2
+1
+50
++23
+Hochschulabschluss, Promotion
+8
+29
+5
+1
+o
+56
++22
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+8
+31
+8
+2
+o
+51
++22
+Deutsche mit Migrationshintergrund
+11
+29
+8
+2
+1
+49
++25
+Ausländer_innen
+8
+20
+8
+0
+0
+63
++18
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+20
+4
+o
+o
+69
++17
+5 bis unter 15 Jahre
+8
+25
+5
+1
+0
+60
++20
+15 Jahre und länger
+8
+35
+10
+2
+0
+45
++24
+seit Geburt
+10
+40
+12
+4
+1
+32
++26
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+9
+24
+9
+2
+1
+55
++20
+2. Quartil
+9
+32
+7
+1
+o
+50
++24
+3. Quartil
+6
+33
+6
+1
+0
+48
++25
+4. Quartil (hõchstes Einkommen)
+7
+31
+7
+2
+o
+52
++22
+Durchschnitt
+insgesamt
+8
+30
+8
+2
+o
+52
++22
+Anzahl
+insgesamt
+210
+756
+207
+44
+10
+1324
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+46
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 45
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Abfallbeseitigung und Sauberkeit in der Stadt -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufrieden
+unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+15
+39
+26
+11
+4
+5
++25
+männlich (inkl. divers)
+13
+43
+25
+10
+4
+5
++26
+Altersgruppen
+16 bis unter 30
+18
+45
+24
+6
+2
+5
++36
+30 bis unter 45
+19
+42
+25
+9
+3
+4
++32
+45 bis unter 60
+11
+42
+26
+13
+4
+4
++22
+60 bis unter 75
+8
+38
+27
+13
+8
+6
++13
+75 und älter
+12
+36
+26
+13
+5
+9
++19
+Haushaltstyp
+Einpersonenhaushalt
+12
+41
+26
+10
+4
+7
++23
+Mehrpersonen ohne Kind
+15
+40
+26
+11
+5
+4
++24
+Mehrpersonen mit Kind(ern)
+15
+44
+25
+10
+2
+4
++30
+Alleinerziehende
+15
+49
+21
+8
+4
+3
++32
+Berufstätigkeit
+ganztags berufstätig
+14
+41
+26
+10
+4
+4
++26
+teilzeitbeschäftigt
+14
+44
+25
+9
+3
+3
++29
+Schüler_in/Student_in
+16
+47
+23
+5
+3
+5
++34
+nicht berufstätig
+12
+36
+26
+13
+5
+7
++19
+Höchster Schulabschluss
+Volks-/Hauptschule
+11
+32
+25
+14
+6
+11
++14
+Mittlere Reife/Realschulabschluss
+10
+32
+33
+11
+8
+6
++12
+Abitur/ (Fach-)Hochschulreife
+15
+45
+24
+9
+3
+3
++29
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+14
+35
+27
+6
+5
+11
++22
+Lehre (auch duales System)
+11
+34
+32
+13
+4
+5
++17
+Fachschule/Fachhochschule/BA
+14
+40
+24
+12
+5
+4
++23
+Hochschulabschluss, Promotion
+16
+47
+23
+9
+3
+3
++31
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+14
+42
+26
+10
+4
+4
++26
+Deutsche mit Migrationshintergrund
+12
+39
+25
+13
+5
+7
++21
+Ausländer_innen
+16
+35
+25
+9
+3
+10
++26
+Wohndauer in Freiburg
+unter 5 Jahre
+19
+42
+23
+7
+2
+6
++35
+5 bis unter 15 Jahre
+17
+44
+23
+10
+3
+4
++31
+15 Jahre und länger
+11
+40
+27
+12
+5
+4
++19
+seit Geburt
+6
+38
+29
+10
+8
+6
++16
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+18
+37
+25
+7
+6
+7
++27
+2. Quartil
+12
+42
+26
+11
+4
+5
++23
+3. Quartil
+16
+43
+28
+7
+3
+3
++31
+4. Quartil (höchstes Einkommen)
+13
+45
+23
+13
+5
+3
++24
+Durchschnitt
+insgesamt
+14
+41
+26
+10
+4
+Anzahl
+5
++25
+insgesamt
+357
+1042
+654
+263
+106
+130
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+47
+
+---
+
+## Page 46
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Öffentliche Sicherheit und Ordnung -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+zufrieden
+teils/teils
+unzufrieden unzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+8
+34
+31
+13
+9
+7
++13
+männlich (inkl. divers)
+6
+38
+26
+14
+7
+6
++14
+Altersgruppen
+16 bis unter 30
+13
+38
+28
+11
+3
+7
++24
+30 bis unter 45
+14
+41
+23
+11
+6
+4
++23
+45 bis unter 60
+4
+34
+32
+16
+9
+5
++4
+60 bis unter 75
+5
+30
+34
+15
+8
+8
++4
+75 und älter
+2
+36
+27
+14
+6
+14
++7
+Haushaltstyp
+Einpersonenhaushalt
+7
+35
+31
+13
+9
+8
++12
+Mehrpersonen ohne Kind
+9
+36
+27
+14
+7
+6
++13
+Mehrpersonen mit Kind(ern)
+10
+37
+30
+11
+6
+5
++17
+Alleinerziehende
+13
+40
+15
+17
+13
+3
++12
+Berufstätigkeit
+ganztags berufstätig
+6
+35
+28
+15
+8
+5
++11
+teilzeitbeschäftigt
+9
+39
+28
+11
+6
+6
++17
+Schüler_in / Student_in
+15
+42
+23
+11
+3
+5
++28
+nicht berufstätig
+5
+33
+31
+14
+7
+10
++8
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+21
+31
+19
+11
+14
+-6
+Mittlere Reife/Realschulabschluss
+4
+23
+39
+15
+11
+7
+-3
+Abitur/ (Fach-)Hochschulreife
+9
+40
+27
+13
+6
+5
++18
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+34
+26
+13
+9
+12
++13
+Lehre (auch duales System)
+5
+23
+39
+16
+10
+8
+-1
+Fachschule/Fachhochschule/BA
+6
+38
+27
+15
+9
+5
++8
+Hochschulabschluss, Promotion
+12
+42
+25
+11
+4
+5
++23
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+8
+37
+30
+14
+7
+5
++13
+Deutsche mit Migrationshintergrund
+11
+31
+25
+16
+8
+6
++10
+Ausländer_innen
+14
+36
+22
+9
+6
+13
++21
+Wohndauer in Freiburg
+unter 5 Jahre
+15
+40
+26
+10
+3
+9
++27
+5 bis unter 15 Jahre
+12
+41
+24
+11
+5
+9
++22
+15 Jahre und länger
+5
+35
+30
+16
+9
+6
++6
+seit Geburt
+3
+24
+37
+17
+11
+8
+-5
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+36
+28
+11
+7
+6
++14
+2. Quartil
+8
+37
+26
+14
+8
+7
++12
+3. Quartil
+8
+37
+35
+10
+5
+5
++16
+4. Quartil (höchstes Einkommen)
+10
+37
+26
+17
+7
+3
++13
+Durchschnitt
+insgesamt
+Anzahl
+9
+36
+29
+13
+7
+7
++13
+insgesamt
+222
+915
+729
+343
+171
+171
+2552
+unterdurchschnittlich häufig
+überdurchschnittlich häufig
+10 oder mehr Prozent-Punkte unter dem Durchschnitt
+5 bis 10 Prozent-Punkte über dem Durchschnitt
+5 bis 10 Prozent-Punkte unter dem Durchschnitt
+10 oder mehr Prozent-Punkte über dem Durchschnitt
+48
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 47
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Feuerwehr / Katastrophenschutz -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+14
+35
+5
+1
+0
+45
++30
+männlich (inkl. divers)
+16
+39
+7
+1
+0
+36
++35
+Altersgruppen
+16 bis unter 30
+15
+26
+5
+1
+o
+53
++27
+30 bis unter 45
+15
+36
+5
+0
+0
+44
++32
+45 bis unter 60
+14
+42
+7
+2
+0
+35
++34
+60 bis unter 75
+15
+41
+8
+1
+0
+35
++35
+75 und älter
+17
+45
+8
+0
+1
+29
++39
+Haushaltstyp
+Einpersonenhaushalt
+12
+35
+8
+1
+1
+43
++29
+Mehrpersonen ohne Kind
+16
+37
+4
+1
+0
+41
++33
+Mehrpersonen mit Kind(ern)
+16
+38
+7
+1
+o
+38
++35
+Alleinerziehende
+27
+33
+11
+3
+o
+27
++42
+Berufstätigkeit
+ganztags berufstätig
+15
+39
+7
+1
+o
+37
++34
+teilzeitbeschäftigt
+14
+36
+9
+0
+o
+45
++31
+Schüler_in /Student_in
+14
+19
+3
+1
+o
+63
++23
+nicht berufstätig
+15
+41
+8
+1
+o
+35
++34
+Höchster Schulabschluss
+Volks-/Hauptschule
+19
+38
+12
+2
+o
+29
++37
+Mittlere Reife/ Realschulabschluss
+16
+40
+12
+2
+0
+30
++35
+Abitur/ (Fach-)Hochschulreife
+14
+37
+5
+1
+0
+44
++31
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+15
+35
+4
+o
+0
+45
++32
+Lehre (auch duales System)
+14
+40
+11
+1
+0
+33
++34
+Fachschule/Fachhochschule/BA
+15
+37
+9
+1
+o
+37
++33
+Hochschulabschluss, Promotion
+15
+36
+3
+1
+o
+46
++32
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+14
+38
+6
+1
+o
+42
++32
+Deutsche mit Migrationshintergrund
+18
+35
+7
+2
+o
+38
++34
+Ausländer_innen
+19
+31
+6
+1
+2
+37
++33
+Wohndauer in Freiburg
+unter 5 Jahre
+11
+26
+6
+1
+o
+56
++23
+5 bis unter 15 Jahre
+14
+33
+5
+0
+0
+46
++30
+15 Jahre und länger
+16
+43
+6
+1
+o
+34
++36
+seit Geburt
+18
+45
+8
+1
+o
+28
++40
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+15
+30
+8
+2
+1
+44
++29
+2. Quartil
+15
+38
+7
+1
+0
+39
++34
+3. Quartil
+15
+40
+9
+1
+0
+38
++34
+4. Quartil (höchstes Einkommen)
+14
+39
+3
+1
+o
+42
++33
+Durchschnitt
+insgesamt
+15
+37
+6
+1
+o
+41
++32
+Anzahl
+insgesamt
+376
+938
+162
+26
+7
+1043
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+49
+
+---
+
+## Page 48
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Straßen-Netz für den motorisierten Verkehr (z.B. PKWs, LKWs, Busse) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+9
+32
+26
+11
+5
+18
++15
+männlich (inkl. divers)
+10
+30
+26
+14
+7
+12
++10
+Altersgruppen
+16 bis unter 30
+12
+28
+23
+11
+4
+23
++16
+30 bis unter 45
+11
+32
+26
+11
+7
+13
++14
+45 bis unter 60
+7
+33
+28
+14
+8
+10
++9
+60 bis unter 75
+9
+28
+30
+15
+5
+13
++11
+75 und älter
+8
+36
+22
+12
+4
+18
++15
+Haushaltstyp
+Einpersonenhaushalt
+9
+30
+28
+12
+5
+16
++13
+Mehrpersonen ohne Kind
+9
+30
+26
+14
+6
+15
++11
+Mehrpersonen mit Kind(ern)
+11
+35
+25
+10
+8
+11
++16
+Alleinerziehende
+8
+35
+17
+13
+9
+17
++10
+Berufstätigkeit
+ganztags berufstätig
+9
+31
+27
+14
+8
+11
++10
+teilzeitbeschäftigt
+10
+32
+24
+13
+6
+13
++14
+Schüler_in /Student_in
+11
+28
+22
+10
+4
+25
++17
+nicht berufstätig
+9
+30
+27
+12
+5
+18
++14
+Höchster Schulabschluss
+Volks-/Hauptschule
+10
+25
+28
+12
+7
+18
++10
+Mittlere Reife/ Realschulabschluss
+8
+25
+29
+17
+8
+13
++4
+Abitur/ (Fach-)Hochschulreife
+9
+33
+26
+12
+6
+14
++13
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+27
+20
+6
+5
+28
++14
+Lehre (auch duales System)
+8
+26
+28
+18
+7
+13
++5
+Fachschule/Fachhochschule/BA
+9
+32
+28
+11
+8
+11
++11
+Hochschulabschluss, Promotion
+10
+34
+26
+11
+4
+14
++17
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+30
+27
+14
+6
+14
++11
+Deutsche mit Migrationshintergrund
+11
+33
+22
+14
+5
+15
++15
+Ausländer_innen
+14
+33
+21
+5
+5
+22
++23
+Wohndauer in Freiburg
+unter 5 Jahre
+10
+28
+26
+8
+4
+23
++16
+5 bis unter 15 Jahre
+11
+33
+26
+12
+5
+13
++15
+15 Jahre und länger
+8
+33
+27
+13
+6
+13
++13
+seit Geburt
+10
+26
+25
+20
+10
+10
++3
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+12
+28
+25
+12
+5
+19
++14
+2. Quartil
+10
+31
+25
+10
+5
+18
++16
+3. Quartil
+8
+35
+26
+14
+7
+9
++11
+4. Quartil (höchstes Einkommen)
+7
+35
+30
+13
+5
+9
++13
+Durchschnitt
+insgesamt
+9
+31
+26
+Anzahl
+13
+6
+15
++13
+insgesamt
+241
+788
+663
+320
+152
+388
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+50
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 49
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Öffentlicher Nahverkehr (Bahnen und Busse) -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+teils/teils
+zufrieden
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+19
+46
+21
+7
+2
+5
++37
+männlich (inkl. divers)
+21
+45
+19
+6
+2
+6
++38
+Altersgruppen
+16 bis unter 30
+21
+44
+21
+7
+1
+6
++38
+30 bis unter 45
+18
+46
+23
+6
+2
+5
++35
+45 bis unter 60
+19
+49
+18
+7
+3
+4
++37
+60 bis unter 75
+22
+44
+20
+7
+2
+5
++39
+75 und älter
+22
+49
+12
+5
+1
+11
++44
+Haushaltstyp
+Einpersonenhaushalt
+21
+49
+18
+4
+1
+6
++42
+Mehrpersonen ohne Kind
+20
+46
+20
+7
+2
+5
++38
+Mehrpersonen mit Kind(ern)
+18
+43
+24
+8
+3
+5
++32
+Alleinerziehende
+17
+37
+31
+7
+2
+6
++30
+Berufstätigkeit
+ganztags berufstätig
+19
+47
+22
+6
+2
+5
++37
+teilzeitbeschäftigt
+17
+47
+22
+8
+3
+4
++34
+Schüler_in /Student_in
+23
+45
+17
+6
+2
+6
++40
+nicht berufstätig
+22
+45
+19
+9
+1
+7
++39
+Höchster Schulabschluss
+Volks-/Hauptschule
+21
+41
+17
+6
+2
+14
++37
+Mittlere Reife/Realschulabschluss
+21
+41
+24
+8
+1
+4
++36
+Abitur/ (Fach-)Hochschulreife
+18
+48
+20
+7
+2
+4
++37
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+24
+40
+17
+9
+2
+11
++39
+Lehre (auch duales System)
+19
+45
+23
+7
+1
+6
++37
+Fachschule/Fachhochschule/BA
+20
+47
+19
+7
+3
+5
++38
+Hochschulabschluss, Promotion
+19
+48
+20
+7
+2
+4
++38
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+19
+47
+21
+7
+2
+5
++37
+Deutsche mit Migrationshintergrund
+23
+43
+17
+7
+3
+8
++38
+Ausländer_innen
+26
+40
+19
+5
+1
+9
++42
+Wohndauer in Freiburg
+unter 5 Jahre
+21
+46
+20
+5
+1
+6
++40
+5 bis unter 15 Jahre
+18
+47
+22
+7
+2
+4
++36
+15 Jahre und länger
+19
+48
+20
+9
+2
+5
++39
+seit Geburt
+21
+37
+21
+10
+3
+8
++32
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+23
+42
+19
+6
+2
+7
++39
+2. Quartil
+24
+42
+21
+7
+1
+5
++40
+3. Quartil
+16
+50
+22
+9
+2
+4
++37
+4. Quartil (höchstes Einkommen)
+17
+52
+18
+9
+3
+4
++38
+Durchschnitt
+insgesamt
+20
+46
+20
+7
+2
+6
++37
+Anzahl
+insgesamt
+503
+1173
+517
+167
+49
+144
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+51
+
+---
+
+## Page 50
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Radwege-Netz -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+21
+43
+18
+5
+1
+13
++39
+männlich (inkl. divers)
+25
+44
+14
+4
+2
+10
++42
+Altersgruppen
+16 bis unter 30
+33
+39
+12
+5
+2
+10
++49
+30 bis unter 45
+24
+46
+17
+5
+2
+6
++43
+45 bis unter 60
+21
+44
+19
+5
+3
+9
++37
+60 bis unter 75
+16
+44
+19
+5
+1
+14
++34
+75 und älter
+13
+42
+11
+1
+0
+32
++34
+Haushaltstyp
+Einpersonenhaushalt
+23
+43
+16
+3
+1
+14
++42
+Mehrpersonen ohne Kind
+23
+44
+15
+5
+1
+11
++41
+Mehrpersonen mit Kind(ern)
+22
+42
+20
+6
+4
+6
++36
+Alleinerziehende
+28
+45
+15
+5
+o
+8
++48
+Berufstätigkeit
+ganztags berufstätig
+25
+46
+13
+5
+2
+10
++43
+teilzeitbeschäftigt
+18
+47
+20
+7
+3
+5
++35
+Schüler_in / Student_in
+40
+35
+14
+3
+1
+7
++54
+nicht berufstätig
+18
+41
+18
+3
+1
+20
++36
+Höchster Schulabschluss
+Volks-/Hauptschule
+19
+40
+15
+2
+1
+22
++37
+Mittlere Reife/ Realschulabschluss
+14
+38
+22
+5
+o
+21
++31
+Abitur/ (Fach-)Hochschulreife
+24
+46
+16
+5
+2
+7
++42
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+30
+35
+13
+3
+1
+18
++45
+Lehre (auch duales System)
+20
+40
+19
+4
+1
+16
++37
+Fachschule/Fachhochschule/BA
+21
+49
+13
+4
+2
+10
++42
+Hochschulabschluss, Promotion
+23
+45
+17
+9
+2
+7
++41
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+22
+45
+17
+5
+2
+9
++40
+Deutsche mit Migrationshintergrund
+22
+43
+15
+2
+1
+17
++41
+Ausländer_innen
+32
+32
+12
+3
+1
+21
++46
+Wohndauer in Freiburg
+unter 5 Jahre
+30
+42
+13
+3
+1
+11
++48
+5 bis unter 15 Jahre
+25
+43
+17
+9
+2
+8
++41
+15 Jahre und länger
+17
+46
+18
+5
+2
+12
++36
+seit Geburt
+24
+41
+16
+3
+3
+14
++40
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+26
+38
+16
+4
+2
+15
++41
+2. Quartil
+23
+42
+18
+3
+2
+11
++40
+3. Quartil
+22
+49
+16
+5
+2
+6
++42
+4. Quartil (hõchstes Einkommen)
+20
+51
+13
+6
+2
+9
++41
+Durchschnitt
+insgesamt
+23
+43
+16
+Anzahl
+5
+2
+11
++40
+insgesamt
+582
+1105
+413
+116
+44
+293
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+52
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 51
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Wie zufrieden sind Sie mit der Erfüllung der Aufgabenbereich der Stradt Freiburg
+- Fußwege-Netz -
+Soziodemografische Merkmale
+sehr
+eher
+eher
+sehr
+weiß
+zufrieden
+teils/teils
+zufrieden
+unzufriedenunzufrieden
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+22
+48
+18
+4
+1
+6
++44
+männlich (inkl. divers)
+23
+49
+17
+3
+1
+6
++45
+Altersgruppen
+16 bis unter 30
+34
+46
+13
+3
+o
+5
++55
+30 bis unter 45
+25
+49
+17
+4
+1
+4
++47
+45 bis unter 60
+21
+50
+20
+4
+1
+5
++43
+60 bis unter 75
+16
+51
+19
+5
+2
+7
++37
+75 und älter
+12
+50
+20
+3
+2
+14
++34
+Haushaltstyp
+Einpersonenhaushalt
+23
+49
+17
+4
+1
+6
++45
+Mehrpersonen ohne Kind
+23
+51
+16
+3
+1
+9
++46
+Mehrpersonen mit Kind(ern)
+22
+45
+20
+6
+1
+5
++41
+Alleinerziehende
+27
+48
+21
+0
+o
+5
++51
+Berufstätigkeit
+ganztags berufstātig
+25
+50
+16
+3
+1
+5
++48
+teilzeitbeschäftigt
+18
+52
+17
+7
+1
+5
++40
+Schüler_in /Student_in
+40
+41
+11
+3
+o
+4
++59
+nicht berufstätig
+17
+48
+21
+3
+2
+9
++37
+Höchster Schulabschluss
+Volks-/Hauptschule
+16
+45
+20
+1
+3
+14
++35
+Mittlere Reife/ Realschulabschluss
+14
+46
+25
+5
+1
+8
++33
+Abitur/ (Fach-)Hochschulreife
+24
+51
+16
+4
+1
+4
++47
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+29
+44
+13
+2
+1
+12
++48
+Lehre (auch duales System)
+17
+49
+22
+4
+1
+7
++38
+Fachschule/Fachhochschule/BA
+21
+52
+16
+4
+1
+5
++44
+Hochschulabschluss, Promotion
+25
+49
+17
+4
+1
+4
++47
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+22
+50
+18
+4
+1
+5
++44
+Deutsche mit Migrationshintergrund
+23
+48
+17
+2
+3
+7
++43
+Ausländer_innen
+31
+41
+13
+2
+o
+11
++50
+Wohndauer in Freiburg
+unter 5 Jahre
+30
+48
+13
+3
+0
+6
++53
+5 bis unter 15 Jahre
+26
+46
+17
+5
+o
+5
++47
+15 Jahre und länger
+16
+52
+20
+4
+1
+6
++39
+seit Geburt
+22
+47
+19
+3
+2
+7
++41
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+27
+42
+18
+4
+1
+8
++45
+2. Quartil
+22
+48
+19
+4
+1
+6
++43
+3. Quartil
+22
+53
+17
+4
+1
+3
++45
+4. Quartil (höchstes Einkommen)
+21
+56
+16
+3
+o
+4
++47
+Durchschnitt
+insgesamt
+23
+49
+Anzahl
+17
+4
+1
+6
++44
+insgesamt
+583
+1246
+443
+100
+25
+155
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+53
+
+---
+
+## Page 52
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+- Quantität Wohnungsbau -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+16
+59
+19
++54
+männlich (inkl. divers)
+7
+21
+58
+15
++51
+Altersgruppen
+16 bis unter 30
+3
+16
+66
+14
++63
+30 bis unter 45
+4
+17
+66
+13
++62
+45 bis unter 60
+10
+21
+52
+17
++42
+60 bis unter 75
+8
+22
+52
+18
++45
+75 und älter
+4
+19
+47
+30
++43
+Haushaltstyp
+Einpersonenhaushalt
+5
+18
+59
+18
++54
+Mehrpersonen ohne Kind
+7
+18
+58
+17
++52
+Mehrpersonen mit Kind(ern)
+6
+22
+58
+14
++52
+Alleinerziehende
+5
+26
+54
+15
++49
+Berufstätigkeit
+ganztags berufstätig
+7
+20
+59
+14
++52
+teilzeitbeschäftigt
+6
+18
+62
+14
++57
+Schüler_in/Student_in
+3
+18
+64
+15
++61
+nicht berufstätig
+6
+17
+51
+25
++45
+Höchster Schulabschluss
+Volks-/Hauptschule
+5
+18
+51
+27
++46
+Mittlere Reife/ Realschulabschluss
+5
+17
+58
+20
++54
+Abitur/ (Fach-)Hochschulreife
+6
+20
+09
+14
++53
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+14
+52
+30
++48
+Lehre (auch duales System)
+5
+19
+58
+18
++53
+Fachschule/Fachhochschule/BA
+7
+19
+56
+18
++50
+Hochschulabschluss, Promotion
+6
+20
+61
+13
++54
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+6
+20
+59
+16
++53
+Deutsche mit Migrationshintergrund
+6
+16
+59
+19
++53
+Ausländer_innen
+7
+14
+57
+22
++51
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+14
+67
+16
++63
+5 bis unter 15 Jahre
+4
+19
+63
+14
++59
+15 Jahre und länger
+8
+20
+52
+20
++44
+seit Geburt
+8
+22
+53
+17
++45
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+16
+58
+21
++52
+2. Quartil
+6
+19
+61
+15
++55
+3. Quartil
+6
+21
+59
+13
++53
+4. Quartil (höchstes Einkommen)
+6
+21
+61
+12
++55
+Durchschnitt
+insgesamt
+6
+19
+Anzahl
+58
+17
++52
+insgesamt
+151
+478
+1481
+441
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+54
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 53
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Quantität Ausweisung von weiteren Wohnbauflächen -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+12
+20
+41
+28
++29
+männlich (inkl. divers)
+11
+24
+43
+22
++32
+Altersgruppen
+16 bis unter 30
+8
+20
+44
+28
++36
+30 bis unter 45
+7
+21
+50
+22
++42
+45 bis unter 60
+17
+25
+38
+20
++21
+60 bis unter 75
+16
+23
+36
+24
++20
+75 und älter
+9
+22
+33
+36
++23
+Haushaltstyp
+Einpersonenhaushalt
+11
+20
+41
+27
++30
+Mehrpersonen ohne Kind
+13
+22
+40
+25
++27
+Mehrpersonen mit Kind(ern)
+11
+25
+45
+19
++34
+Alleinerziehende
+5
+24
+51
+21
++46
+Berufstätigkeit
+ganztags berufstätig
+12
+23
+44
+21
++32
+teilzeitbeschäftigt
+12
+24
+43
+22
++31
+Schüler_in /Student_in
+8
+22
+42
+28
++34
+nicht berufstätig
+12
+20
+37
+31
++25
+Höchster Schulabschluss
+Volks-/Hauptschule
+10
+18
+38
+34
++28
+Mittlere Reife/Realschulabschluss
+11
+20
+42
+28
++31
+Abitur/ (Fach-)Hochschulreife
+12
+24
+41
+23
++29
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+17
+36
+37
++27
+Lehre (auch duales System)
+11
+19
+42
+28
++31
+Fachschule/Fachhochschule/BA
+13
+20
+42
+25
++29
+Hochschulabschluss, Promotion
+12
+26
+42
+20
++30
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+12
+24
+39
+25
++27
+Deutsche mit Migrationshintergrund
+10
+16
+51
+23
++41
+Ausländer_innen
+7
+15
+51
+28
++44
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+19
+47
+27
++40
+5 bis unter 15 Jahre
+9
+21
+45
+25
++36
+15 Jahre und länger
+14
+23
+36
+26
++22
+seit Geburt
+15
+24
+39
+22
++24
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+11
+16
+43
+30
++31
+2. Quartil
+10
+23
+42
+24
++32
+3. Quartil
+12
+27
+40
+21
++28
+4. Quartil (höchstes Einkommen)
+13
+25
+44
+17
++31
+Durchschnitt
+insgesamt
+11
+22
+41
+25
++30
+Anzahl
+insgesamt
+291
+899
+1054
+645
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+55
+
+---
+
+## Page 54
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten
+- Modernisierung und Sanierung in Wohngebieten -
+Soziodemografische Merkmale
+mehr ausgeben
+weiß ich
+einsparen
+unverändert
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+27
+47
+23
++44
+männlich (inkl. divers)
+4
+33
+46
+17
++43
+Altersgruppen
+16 bis unter 30
+5
+30
+46
+19
++41
+30 bis unter 45
+4
+30
+47
+19
++43
+45 bis unter 60
+3
+31
+45
+20
++42
+60 bis unter 75
+3
+28
+52
+18
++49
+75 und älter
+1
+25
+43
+31
++42
+Haushaltstyp
+Einpersonenhaushalt
+4
+30
+44
+23
++40
+Mehrpersonen ohne Kind
+3
+26
+51
+20
++47
+Mehrpersonen mit Kind(ern)
+4
+35
+45
+16
++41
+Alleinerziehende
+5
+37
+44
+15
++38
+Berufstätigkeit
+ganztags berufstätig
+3
+31
+48
+18
++45
+teilzeitbeschäftigt
+4
+30
+47
+19
++43
+Schüler_ in / Student_in
+6
+30
+41
+23
++36
+nicht berufstätig
+3
+27
+46
+25
++43
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+17
+53
+26
++50
+Mittlere Reife/ Realschulabschluss
+3
+26
+45
+25
++43
+Abitur/ (Fach-)Hochschulreife
+3
+31
+47
+18
++44
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+25
+40
+31
++36
+Lehre (auch duales System)
+2
+25
+50
+23
++48
+Fachschule/Fachhochschule/BA
+4
+31
+47
+19
++43
+Hochschulabschluss, Promotion
+3
+33
+47
+17
++43
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+30
+47
+20
++44
+Deutsche mit Migrationshintergrund
+2
+26
+53
+18
++50
+Ausländer_innen
+6
+30
+41
+23
++35
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+30
+44
+22
++39
+5 bis unter 15 Jahre
+4
+28
+47
+21
++44
+15 Jahre und länger
+3
+29
+46
+22
++44
+seit Geburt
+3
+32
+49
+16
++47
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+28
+43
+24
++38
+2. Quartil
+3
+29
+49
+19
++46
+3. Quartil
+4
+29
+50
+17
++46
+4. Quartil (höchstes Einkommen)
+2
+31
+52
+15
++49
+Durchschnitt
+insgesamt
+3
+29
+47
+21
++43
+Anzahl
+insgesamt
+87
+748
+1187
+530
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+56
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 55
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten..
+- Bürgerservice / Bürgerkontakte der Stadt Freiburg -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+56
+15
+24
++10
+männlich (inkl. divers)
+7
+59
+16
+17
++9
+Altersgruppen
+16 bis unter 30
+11
+54
+14
+21
++3
+30 bis unter 45
+8
+09
+15
+18
++7
+45 bis unter 60
+3
+59
+17
+21
++15
+60 bis unter 75
+5
+57
+19
+20
++14
+75 und älter
+3
+55
+10
+33
++7
+Haushaltstyp
+Einpersonenhaushalt
+6
+57
+16
+22
++10
+Mehrpersonen ohne Kind
+7
+55
+16
+22
++8
+Mehrpersonen mit Kind(ern)
+6
+62
+15
+16
++9
+Alleinerziehende
+8
+60
+17
+15
++9
+Berufstätigkeit
+ganztags berufstätig
+9
+58
+15
+18
++7
+teilzeitbeschäftigt
+3
+62
+16
+19
++12
+Schüler_in /Student_in
+11
+57
+12
+20
++2
+nicht berufstätig
+4
+52
+17
+27
++13
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+45
+16
+34
++12
+Mittlere Reife/ Realschulabschluss
+5
+46
+23
+26
++18
+Abitur/ (Fach-)Hochschulreife
+7
+62
+14
+18
++7
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+12
+42
+18
+28
++5
+Lehre (auch duales System)
+4
+53
+17
+26
++13
+Fachschule/Fachhochschule/BA
+7
+54
+17
+22
++10
+Hochschulabschluss, Promotion
+5
+64
+14
+17
++8
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+09
+14
+20
++9
+Deutsche mit Migrationshintergrund
+5
+53
+17
+25
++12
+Ausländer_innen
+11
+43
+23
+23
++12
+Wohndauer in Freiburg
+unter 5 Jahre
+8
+57
+14
+21
++6
+5 bis unter 15 Jahre
+8
+56
+14
+22
++6
+15 Jahre und länger
+4
+59
+16
+21
++12
+seit Geburt
+7
+54
+19
+20
++13
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+49
+19
+24
++11
+2. Quartil
+6
+57
+18
+19
++12
+3. Quartil
+5
+63
+11
+20
++6
+4. Quartil (höchstes Einkommen)
+7
+64
+15
+14
++7
+Durchschnitt
+insgesamt
+6
+57
+16
+21
++9
+Anzahl
+insgesamt
+164
+1448
+400
+540
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+57
+
+---
+
+## Page 56
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Digitalisierung (z.B. Online-Dienste, Infrastruktur Digitaliserung an Schulen)-
+Soziodemografische Merkmale
+einsparen
+unverändert
+mehr ausgeben
+weiß ich
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+4
+25
+44
+27
++39
+männlich (inkl. divers)
+4
+27
+49
+20
++45
+Altersgruppen
+16 bis unter 30
+2
+28
+53
+17
++51
+30 bis unter 45
+6
+27
+49
+19
++43
+45 bis unter 60
+4
+28
+47
+21
++43
+60 bis unter 75
+4
+25
+45
+27
++41
+75 und älter
+3
+17
+29
+51
++26
+Haushaltstyp
+Einpersonenhaushalt
+3
+24
+42
+30
++39
+Mehrpersonen ohne Kind
+4
+25
+48
+23
++44
+Mehrpersonen mit Kind(ern)
+4
+30
+52
+15
++48
+Alleinerziehende
+20
+30
+38
+12
++17
+Berufstätigkeit
+ganztags berufstätig
+4
+27
+51
+19
++47
+teilzeitbeschäftigt
+5
+29
+46
+20
++41
+Schüler_in /Student_in
+2
+31
+49
+17
++47
+nicht berufstätig
+4
+20
+39
+36
++35
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+20
+40
+38
++37
+Mittlere Reife/ Realschulabschluss
+3
+17
+48
+33
++45
+Abitur/ (Fach-)Hochschulreife
+4
+29
+47
+20
++43
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+23
+42
+31
++38
+Lehre (auch duales System)
+3
+22
+49
+27
++46
+Fachschule/Fachhochschule/BA
+5
+25
+42
+28
++38
+Hochschulabschluss, Promotion
+4
+29
+49
+18
++44
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+27
+46
+24
++42
+Deutsche mit Migrationshintergrund
+3
+24
+48
+24
++45
+Ausländer_innen
+6
+20
+50
+24
++43
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+31
+45
+20
++42
+5 bis unter 15 Jahre
+3
+22
+54
+21
++52
+15 Jahre und länger
+5
+26
+41
+29
++36
+seit Geburt
+4
+26
+49
+21
++45
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+27
+40
+29
++36
+2. Quartil
+5
+26
+46
+24
++41
+3. Quartil
+4
+28
+48
+19
++44
+4. Quartil (höchstes Einkommen)
+4
+27
+52
+17
++49
+Durchschnitt
+insgesamt
+4
+26
+46
+Anzahl
+24
++42
+insgesamt
+102
+658
+1177
+615
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+58
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 57
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten..
+- Instandhaltung und Bau von Schulen -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+14
+50
+35
++49
+männlich (inkl. divers)
+2
+17
+49
+33
++46
+Altersgruppen
+16 bis unter 30
+3
+17
+37
+43
++35
+30 bis unter 45
+3
+17
+43
+37
++41
+45 bis unter 60
+1
+17
+58
+24
++57
+60 bis unter 75
+o
+↓
+63
+26
++62
+75 und älter
+o
+13
+52
+35
++51
+Haushaltstyp
+Einpersonenhaushalt
+2
+14
+43
+41
++41
+Mehrpersonen ohne Kind
+2
+15
+48
+35
++46
+Mehrpersonen mit Kind(ern)
+1
+18
+64
+18
++63
+Alleinerziehende
+6
+15
+66
+14
++60
+Berufstätigkeit
+ganztags berufstätig
+2
+16
+48
+34
++46
+teilzeitbeschäftigt
+1
+16
+54
+29
++53
+Schüler_in /Student_in
+3
+17
+35
+45
++32
+nicht berufstätig
+1
+13
+53
+33
++52
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+9
+57
+33
++56
+Mittlere Reife/Realschulabschluss
+1
+12
+58
+29
++58
+Abitur/ (Fach-)Hochschulreife
+2
+16
+49
+33
++48
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+15
+41
+40
++37
+Lehre (auch duales System)
+1
+13
+55
+31
++55
+Fachschule/Fachhochschule/BA
+2
+15
+52
+32
++50
+Hochschulabschluss, Promotion
+2
+16
+49
+34
++47
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+15
+51
+32
++50
+Deutsche mit Migrationshintergrund
+2
+14
+51
+33
++49
+Ausländer_innen
+4
+17
+37
+42
++34
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+18
+34
+47
++32
+5 bis unter 15 Jahre
+2
+15
+45
+38
++42
+15 Jahre und länger
+1
+14
+58
+27
++57
+seit Geburt
+o
+15
+62
+22
++62
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+17
+41
+40
++39
+2. Quartil
+1
+15
+54
+30
++53
+3. Quartil
+0
+16
+57
+27
++57
+4. Quartil (höchstes Einkommen)
+3
+15
+48
+34
++46
+Durchschnitt
+insgesamt
+2
+15
+49
+34
++48
+Anzahl
+insgesamt
+42
+388
+1261
+861
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+59
+
+---
+
+## Page 58
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+- Betreuungsangebote an Grundschulen -
+Soziodemografische Merkmale
+einsparen
+unverändert
+mehr ausgeben
+weiß ich
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+12
+34
+53
++33
+männlich (inkl. divers)
+1
+19
+26
+53
++25
+Altersgruppen
+16 bis unter 30
+2
+14
+26
+58
++24
+30 bis unter 45
+2
+16
+31
+51
++30
+45 bis unter 60
+1
+21
+31
+48
++30
+60 bis unter 75
+1
+13
+34
+52
++33
+75 und älter
+o
+9
+32
+58
++32
+Haushaltstyp
+Einpersonenhaushalt
+2
+11
+24
+64
++22
+Mehrpersonen ohne Kind
+1
+14
+27
+57
++27
+Mehrpersonen mit Kind(ern)
+1
+24
+47
+28
++46
+Alleinerziehende
+o
+35
+46
+18
++46
+Berufstätigkeit
+ganztags berufstätig
+2
+18
+26
+54
++25
+teilzeitbeschäftigt
+0
+15
+38
+47
++38
+Schüler_in / Student_in
+1
+13
+28
+58
++27
+nicht berufstätig
+1
+13
+31
+55
++30
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+10
+39
+50
++37
+Mittlere Reife/Realschulabschluss
+1
+15
+29
+55
++28
+Abitur/ (Fach-)Hochschulreife
+1
+16
+31
+52
++30
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+2
+17
+27
+54
++24
+Lehre (auch duales System)
+1
+14
+33
+52
++33
+Fachschule/Fachhochschule/BA
+1
+15
+29
+55
++28
+Hochschulabschluss, Promotion
+1
+16
+31
+52
++30
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+15
+30
+54
++29
+Deutsche mit Migrationshintergrund
+1
+13
+34
+53
++33
+Ausländer_innen
+3
+17
+30
+50
++27
+Wohndauer in Freiburg
+unter 5 Jahre
+1
+14
+23
+62
++22
+5 bis unter 15 Jahre
+2
+12
+32
+55
++30
+15 Jahre und länger
+o
+16
+34
+49
++34
+seit Geburt
+1
+21
+30
+49
++29
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+14
+30
+54
++28
+2. Quartil
+1
+15
+33
+51
++32
+3. Quartil
+0
+18
+35
+46
++35
+4. Quartil (höchstes Einkommen)
+1
+16
+25
+59
++23
+Durchschnitt
+insgesamt
+1
+15
+30
+53
++29
+Anzahl
+insgesamt
+29
+389
+774
+1361
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+60
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 59
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Betreuungsangebote an weiterführenden Schulen -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+16
+25
+58
++23
+männlich (inkl. divers)
+3
+20
+22
+55
++19
+Altersgruppen
+16 bis unter 30
+3
+17
+21
+60
++18
+30 bis unter 45
+3
+16
+23
+58
++20
+45 bis unter 60
+2
+23
+27
+48
++25
+60 bis unter 75
+1
+20
+25
+54
++24
+75 und älter
+1
+9
+23
+67
++22
+Haushaltstyp
+Einpersonenhaushalt
+3
+11
+19
+67
++16
+Mehrpersonen ohne Kind
+2
+17
+22
+59
++19
+Mehrpersonen mit Kind(ern)
+2
+28
+33
+37
++31
+Alleinerziehende
+1
+37
+35
+27
++34
+Berufstätigkeit
+ganztags berufstätig
+3
+18
+22
+57
++19
+teilzeitbeschäftigt
+2
+21
+25
+52
++24
+Schüler_in /Student_in
+2
+16
+22
+60
++20
+nicht berufstätig
+2
+15
+24
+59
++22
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+11
+31
+56
++29
+Mittlere Reife/ Realschulabschluss
+2
+17
+24
+57
++22
+Abitur/ (Fach-)Hochschulreife
+2
+18
+23
+57
++21
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+16
+23
+56
++18
+Lehre (auch duales System)
+1
+17
+26
+56
++25
+Fachschule/Fachhochschule/BA
+2
+16
+22
+59
++20
+Hochschulabschluss, Promotion
+2
+19
+23
+56
++21
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+18
+23
+57
++21
+Deutsche mit Migrationshintergrund
+3
+16
+24
+56
++21
+Ausländer_innen
+3
+17
+28
+52
++25
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+14
+18
+65
++16
+5 bis unter 15 Jahre
+3
+14
+24
+59
++21
+15 Jahre und länger
+1
+20
+26
+52
++25
+seit Geburt
+2
+22
+24
+52
++23
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+15
+24
+57
++21
+2. Quartil
+1
+21
+24
+53
++23
+3. Quartil
+1
+19
+25
+55
++24
+4. Quartil (hõchstes Einkommen)
+2
+16
+19
+62
++17
+Durchschnitt
+insgesamt
+2
+18
+23
+57
++21
+Anzahl
+insgesamt
+57
+448
+595
+1452
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+61
+
+---
+
+## Page 60
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+kanueczeies
+- Kindergärten und Kindertagesstätten -
+Soziodemografische Merkmale
+einsparen
+unverändert
+mehr ausgeben
+weiß ich
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+12
+38
+50
++37
+männlich (inkl. divers)
+2
+17
+34
+47
++32
+Altersgruppen
+16 bis unter 30
+2
+12
+30
+56
++28
+30 bis unter 45
+2
+13
+45
+40
++43
+45 bis unter 60
+1
+19
+36
+45
++35
+60 bis unter 75
+1
+15
+33
+52
++33
+75 und älter
+o
+11
+33
+56
++32
+Haushaltstyp
+Einpersonenhaushalt
+2
+11
+26
+61
++24
+Mehrpersonen ohne Kind
+1
+13
+31
+54
++30
+Mehrpersonen mit Kind(ern)
+1
+20
+62
+16
++61
+Alleinerziehende
+o
+28
+59
+13
++59
+Berufstätigkeit
+ganztags berufstätig
+2
+15
+35
+48
++32
+teilzeitbeschäftigt
+1
+15
+46
+39
++45
+Schüler_in /Student_in
+1
+12
+30
+57
++29
+nicht berufstätig
+1
+13
+33
+52
++32
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+10
+37
+52
++36
+Mittlere Reife/ Realschulabschluss
+1
+14
+32
+54
++31
+Abitur/ (Fach-)Hochschulreife
+1
+15
+38
+46
++37
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+3
+14
+29
+54
++26
+Lehre (auch duales System)
+1
+12
+37
+51
++36
+Fachschule/Fachhochschule/BA
+2
+14
+35
+50
++33
+Hochschulabschluss, Promotion
+1
+15
+39
+45
++37
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+15
+35
+49
++34
+Deutsche mit Migrationshintergrund
+1
+13
+40
+47
++39
+Ausländer_innen
+3
+12
+38
+47
++35
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+11
+29
+58
++27
+5 bis unter 15 Jahre
+2
+11
+42
+45
++40
+15 Jahre und länger
+1
+17
+37
+45
++36
+seit Geburt
+1
+18
+35
+46
++34
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+2
+13
+31
+54
++29
+2. Quartil
+1
+15
+40
+44
++39
+3. Quartil
+1
+17
+42
+41
++41
+4. Quartil (höchstes Einkommen)
+2
+13
+34
+51
++32
+Durchschnitt
+insgesamt
+1
+14
+36
+Anzahl
+49
++34
+insgesamt
+36
+357
+916
+1244
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+62
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 61
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten
+- Spielplätze -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+4
+40
+17
+39
++13
+männlich (inkl. divers)
+6
+45
+14
+35
++9
+Altersgruppen
+16 bis unter 30
+8
+36
+13
+43
++5
+30 bis unter 45
+7
+45
+18
+30
++11
+45 bis unter 60
+2
+47
+17
+34
++15
+60 bis unter 75
+2
+46
+15
+37
++13
+75 und älter
+2
+36
+12
+50
++10
+Haushaltstyp
+Einpersonenhaushalt
+5
+31
+13
+50
++8
+Mehrpersonen ohne Kind
+5
+42
+13
+40
++8
+Mehrpersonen mit Kind(ern)
+4
+64
+22
+10
++18
+Alleinerziehende
+o
+53
+34
+12
++34
+Berufstätigkeit
+ganztags berufstätig
+7
+46
+14
+33
++7
+teilzeitbeschäftigt
+3
+50
+17
+30
++14
+Schüler_in/Student_in
+8
+32
+13
+48
++5
+nicht berufstätig
+3
+37
+17
+43
++15
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+32
+23
+43
++21
+Mittlere Reife/ Realschulabschluss
+3
+36
+22
+40
++19
+Abitur/ (Fach-)Hochschulreife
+5
+46
+13
+35
++8
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+32
+17
+43
++8
+Lehre (auch duales System)
+2
+36
+20
+42
++18
+Fachschule/Fachhochschule/BA
+5
+41
+16
+38
++11
+Hochschulabschluss, Promotion
+5
+49
+13
+33
++8
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+43
+14
+38
++10
+Deutsche mit Migrationshintergrund
+5
+41
+21
+34
++16
+Ausländer_innen
+8
+38
+19
+34
++11
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+35
+14
+45
++7
+5 bis unter 15 Jahre
+6
+43
+16
+35
++10
+15 Jahre und länger
+3
+46
+15
+35
++12
+seit Geburt
+3
+47
+17
+33
++14
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+7
+32
+18
+43
++12
+2. Quartil
+3
+45
+17
+35
++14
+3. Quartil
+4
+54
+13
+29
++9
+4. Quartil (höchstes Einkommen)
+5
+47
+12
+36
++7
+Durchschnitt
+insgesamt
+5
+42
+15
+37
++11
+Anzahl
+insgesamt
+122
+1081
+393
+955
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+63
+
+---
+
+## Page 62
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+DiStdt Freiburg kann sichgenau wie ein Privathaushalt nicht alles gleichzeitigleisten
+- Treffpunkte / Einrichtungen für die Jugend -
+Soziodemografische Merkmale
+einsparen
+weiß ich
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+18
+30
+50
++28
+männlich (inkl. divers)
+4
+26
+27
+43
++23
+Altersgruppen
+16 bis unter 30
+5
+21
+28
+47
++23
+30 bis unter 45
+4
+20
+26
+49
++22
+45 bis unter 60
+1
+20
+37
+41
++37
+60 bis unter 75
+2
+25
+29
+44
++27
+75 und älter
+o
+24
+19
+57
++19
+Haushaltstyp
+Einpersonenhaushalt
+3
+20
+24
+53
++21
+Mehrpersonen ohne Kind
+3
+21
+27
+49
++25
+Mehrpersonen mit Kind(ern)
+3
+27
+38
+32
++35
+Alleinerziehende
+o
+21
+49
+30
++49
+Berufstätigkeit
+ganztags berufstätig
+3
+24
+27
+46
++24
+teilzeitbeschäftigt
+2
+18
+36
+45
++34
+Schüler_in/Student_in
+6
+21
+28
+45
++23
+nicht berufstätig
+2
+21
+26
+50
++24
+Höchster Schulabschluss
+Volks-/Hauptschule
+o
+22
+30
+48
++29
+Mittlere Reife/ Realschulabschluss
+2
+21
+34
+43
++32
+Abitur/ (Fach-)Hochschulreife
+2
+21
+29
+48
++27
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+23
+26
+47
++21
+Lehre (auch duales System)
+1
+22
+31
+46
++30
+Fachschule/Fachhochschule/BA
+3
+21
+31
+46
++28
+Hochschulabschluss, Promotion
+3
+21
+28
+48
++25
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+2
+20
+30
+48
++28
+Deutsche mit Migrationshintergrund
+2
+23
+30
+45
++28
+Ausländer_innen
+10
+27
+23
+39
++13
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+20
+22
+52
++17
+5 bis unter 15 Jahre
+3
+18
+27
+52
++24
+15 Jahre und länger
+1
+22
+33
+44
++31
+seit Geburt
+1
+26
+34
+39
++32
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+22
+29
+45
++25
+2. Quartil
+3
+21
+31
+45
++29
+3. Quartil
+1
+22
+32
+45
++31
+4. Quartil (höchstes Einkommen)
+3
+21
+25
+52
++22
+Durchschnitt
+insgesamt
+3
+21
+29
+47
++26
+Anzahl
+insgesamt
+72
+548
+734
+1198
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+64
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 63
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Treffpunkte / Beratungsstellen für Senior_innen -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+21
+21
+57
++19
+männlich (inkl. divers)
+9
+28
+14
+52
++8
+Altersgruppen
+16 bis unter 30
+7
+18
+14
+60
++8
+30 bis unter 45
+5
+18
+12
+65
++6
+45 bis unter 60
+3
+22
+19
+57
++16
+60 bis unter 75
+3
+35
+24
+37
++22
+75 und älter
+1
+38
+26
+36
++25
+Haushaltstyp
+Einpersonenhaushalt
+4
+24
+20
+52
++16
+Mehrpersonen ohne Kind
+4
+25
+18
+52
++14
+Mehrpersonen mit Kind(ern)
+5
+21
+10
+64
++5
+Alleinerziehende
+0
+38
+20
+41
++20
+Berufstätigkeit
+ganztags berufstätig
+5
+24
+13
+58
++8
+teilzeitbeschäftigt
+3
+19
+18
+60
++15
+Schüler_in /Student_in
+5
+17
+17
+61
++12
+nicht berufstätig
+3
+31
+23
+43
++20
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+27
+32
+39
++29
+Mittlere Reife/ Realschulabschluss
+2
+26
+24
+48
++23
+Abitur/ (Fach-)Hochschulreife
+4
+24
+15
+57
++11
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+20
+15
+59
++8
+Lehre (auch duales System)
+1
+25
+27
+46
++26
+Fachschule/Fachhochschule/BA
+4
+23
+19
+53
++15
+Hochschulabschluss, Promotion
+5
+25
+13
+58
++8
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+24
+18
+54
++14
+Deutsche mit Migrationshintergrund
+3
+24
+20
+53
++17
+Ausländer_innen
+9
+21
+15
+55
++6
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+19
+12
+63
++7
+5 bis unter 15 Jahre
+5
+18
+15
+63
++10
+15 Jahre und länger
+3
+28
+21
+48
++18
+seit Geburt
+4
+30
+21
+45
++17
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+22
+18
+55
++13
+2. Quartil
+3
+24
+24
+49
++21
+3. Quartil
+4
+27
+14
+55
++10
+4. Quartil (hõchstes Einkommen)
+4
+25
+13
+58
++9
+Durchschnitt
+insgesamt
+4
+24
+17
+54
++13
+Anzahl
+insgesamt
+107
+612
+445
+1388
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+65
+
+---
+
+## Page 64
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Di Stadt Freiburg kann sich  genau wie ein Privathaushalt -nicht alles gleichzeitig leisten
+- Angebote für Zugewanderte (Sprachkurse, Treffs) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+17
+30
+47
++25
+männlich (inkl. divers)
+9
+21
+29
+41
++20
+Altersgruppen
+16 bis unter 30
+7
+17
+37
+39
++29
+30 bis unter 45
+6
+20
+29
+45
++23
+45 bis unter 60
+6
+17
+32
+45
++26
+60 bis unter 75
+10
+23
+25
+42
++15
+75 und älter
+10
+18
+21
+51
++10
+Haushaltstyp
+Einpersonenhaushalt
+8
+20
+24
+48
++17
+Mehrpersonen ohne Kind
+7
+18
+34
+41
++27
+Mehrpersonen mit Kind(ern)
+8
+19
+27
+46
++20
+Alleinerziehende
+4
+40
+23
+33
++19
+Berufstätigkeit
+ganztags berufstätig
+6
+19
+28
+45
++19
+teilzeitbeschäftigt
+4
+18
+33
+45
++28
+Schüler_in /Student_in
+3
+16
+40
+40
++37
+nicht berufstätig
+9
+20
+26
+45
++17
+Höchster Schulabschluss
+Volks-/Hauptschule
+16
+17
+20
+47
++4
+Mittlere Reife/ Realschulabschluss
+8
+21
+22
+48
++14
+Abitur/ (Fach-)Hochschulreife
+6
+18
+32
+44
++26
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+7
+18
+30
+45
++23
+Lehre (auch duales System)
+11
+19
+24
+46
++12
+Fachschule/Fachhochschule/BA
+9
+20
+28
+44
++19
+Hochschulabschluss, Promotion
+6
+18
+33
+43
++27
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+8
+17
+29
+47
++21
+Deutsche mit Migrationshintergrund
+8
+23
+31
+39
++24
+Ausländer_innen
+6
+29
+35
+30
++28
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+19
+34
+42
++29
+5 bis unter 15 Jahre
+5
+20
+32
+43
++28
+15 Jahre und länger
+7
+18
+28
+46
++21
+seit Geburt
+16
+17
+25
+43
++9
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+20
+29
+42
++21
+2. Quartil
+7
+19
+33
+41
++26
+3. Quartil
+6
+21
+29
+44
++23
+4. Quartil (höchstes Einkommen)
+7
+18
+32
+43
++25
+Durchschnitt
+insgesamt
+7
+19
+30
+44
++22
+Anzahl
+insgesamt
+190
+482
+754
+1127
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+66
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 65
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Beratungsstellen (z.B. Erziehung, Sucht) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+25
+25
+47
++22
+männlich (inkl. divers)
+7
+30
+19
+44
++12
+Altersgruppen
+16 bis unter 30
+4
+23
+31
+42
++27
+30 bis unter 45
+5
+28
+21
+45
++15
+45 bis unter 60
+4
+29
+20
+47
++16
+60 bis unter 75
+5
+32
+20
+43
++14
+75 und älter
+6
+23
+16
+56
++10
+Haushaltstyp
+Einpersonenhaushalt
+5
+24
+22
+50
++17
+Mehrpersonen ohne Kind
+5
+27
+25
+43
++20
+Mehrpersonen mit Kind(ern)
+5
+34
+16
+45
++11
+Alleinerziehende
+o
+52
+22
+26
++22
+Berufstätigkeit
+ganztags berufstätig
+6
+31
+18
+45
++11
+teilzeitbeschäftigt
+3
+31
+24
+42
++20
+Schüler_in/Student_in
+2
+19
+34
+45
++31
+nicht berufstätig
+5
+23
+23
+49
++18
+Höchster Schulabschluss
+Volks-/Hauptschule
+7
+23
+19
+50
++12
+Mittlere Reife/ Realschulabschluss
+7
+22
+22
+49
++15
+Abitur/ (Fach-)Hochschulreife
+4
+29
+23
+44
++19
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+19
+29
+48
++25
+Lehre (auch duales System)
+7
+24
+23
+46
++16
+Fachschule/Fachhochschule/BA
+6
+27
+21
+46
++15
+Hochschulabschluss, Promotion
+3
+31
+21
+45
++17
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+28
+21
+47
++17
+Deutsche mit Migrationshintergrund
+7
+23
+29
+40
++22
+Ausländer_innen
+6
+27
+24
+43
++19
+Wohndauer in Freiburg
+unter 5 Jahre
+4
+22
+28
+47
++24
+5 bis unter 15 Jahre
+4
+27
+24
+46
++20
+15 Jahre und länger
+4
+30
+20
+45
++16
+seit Geburt
+8
+30
+18
+44
++10
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+23
+26
+46
++21
+2. Quartil
+4
+29
+25
+43
++21
+3. Quartil
+5
+36
+18
+42
++14
+4. Quartil (höchstes Einkommen)
+6
+31
+18
+45
++12
+Durchschnitt
+insgesamt
+5
+27
+22
+46
++17
+Anzahl
+insgesamt
+123
+695
+567
+1167
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+67
+
+---
+
+## Page 66
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Dawhusa ichzeies
+- Schwimmbäder -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+48
+30
+17
++25
+männlich (inkl. divers)
+7
+45
+30
+19
++24
+Altersgruppen
+16 bis unter 30
+10
+50
+19
+21
++10
+30 bis unter 45
+8
+51
+27
+15
++19
+45 bis unter 60
+3
+41
+42
+14
++39
+60 bis unter 75
+4
+46
+34
+16
++30
+75 und älter
+o
+39
+32
+30
++32
+Haushaltstyp
+Einpersonenhaushalt
+5
+44
+31
+21
++26
+Mehrpersonen ohne Kind
+6
+47
+28
+19
++21
+Mehrpersonen mit Kind(ern)
+7
+53
+34
+7
++27
+Alleinerziehende
+2
+39
+47
+12
++44
+Berufstätigkeit
+ganztags berufstätig
+7
+47
+30
+16
++23
+teilzeitbeschäftigt
+4
+52
+30
+14
++26
+Schüler_in / Student_in
+10
+49
+18
+23
++8
+nicht berufstätig
+3
+41
+33
+23
++30
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+28
+46
+26
++45
+Mittlere Reife/ Realschulabschluss
+4
+36
+40
+20
++36
+Abitur/ (Fach-)Hochschulreife
+6
+51
+27
+16
++21
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+34
+24
+33
++15
+Lehre (auch duales System)
+4
+37
+38
+20
++35
+Fachschule/Fachhochschule/BA
+4
+46
+33
+16
++29
+Hochschulabschluss, Promotion
+6
+54
+26
+14
++20
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+5
+48
+30
+17
++25
+Deutsche mit Migrationshintergrund
+7
+39
+36
+18
++29
+Ausländer_innen
+9
+42
+25
+25
++15
+Wohndauer in Freiburg
+unter 5 Jahre
+8
+51
+19
+21
++11
+5 bis unter 15 Jahre
+8
+50
+25
+17
++17
+15 Jahre und länger
+3
+43
+35
+18
++32
+seit Geburt
+3
+43
+40
+15
++37
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+40
+27
+25
++19
+2. Quartil
+4
+48
+33
+15
++29
+3. Quartil
+4
+52
+34
+11
++30
+4. Quartil (höchstes Einkommen)
+6
+51
+27
+15
++21
+Durchschnitt
+insgesamt
+6
+46
+30
+18
++24
+Anzahl
+insgesamt
+144
+1181
+760
+467
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+68
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 67
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Sportförderung (Vereine und Sportanlagen) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+39
+25
+33
++21
+männlich (inkl. divers)
+7
+38
+28
+27
++22
+Altersgruppen
+16 bis unter 30
+6
+42
+24
+29
++18
+30 bis unter 45
+7
+39
+25
+29
++18
+45 bis unter 60
+3
+36
+34
+26
++31
+60 bis unter 75
+5
+38
+24
+33
++18
+75 und älter
+1
+35
+24
+40
++22
+Haushaltstyp
+Einpersonenhaushalt
+4
+35
+27
+34
++23
+Mehrpersonen ohne Kind
+5
+40
+24
+31
++19
+Mehrpersonen mit Kind(ern)
+7
+41
+31
+21
++24
+Alleinerziehende
+6
+46
+30
+17
++24
+Berufstätigkeit
+ganztags berufstätig
+7
+40
+27
+27
++20
+teilzeitbeschäftigt
+5
+36
+29
+30
++24
+Schüler_in /Student_in
+5
+47
+22
+26
++17
+nicht berufstätig
+3
+35
+25
+38
++22
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+26
+36
+37
++35
+Mittlere Reife/ Realschulabschluss
+5
+29
+32
+34
++27
+Abitur/ (Fach-)Hochschulreife
+5
+41
+25
+29
++20
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+29
+25
+40
++18
+Lehre (auch duales System)
+3
+36
+29
+32
++26
+Fachschule/Fachhochschule/BA
+6
+EE
+31
+28
++25
+Hochschulabschluss, Promotion
+5
+44
+23
+29
++18
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+39
+26
+31
++22
+Deutsche mit Migrationshintergrund
+7
+34
+32
+28
++26
+Ausländer_innen
+9
+39
+23
+30
++14
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+41
+24
+30
++18
+5 bis unter 15 Jahre
+6
+38
+25
+31
++19
+15 Jahre und länger
+4
+38
+25
+32
++21
+seit Geburt
+3
+35
+36
+25
++33
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+34
+25
+35
++19
+2. Quartil
+5
+40
+25
+29
++20
+3. Quartil
+5
+38
+31
+25
++25
+4. Quartil (höchstes Einkommen)
+4
+43
+25
+28
++21
+Durchschnitt
+insgesamt
+5
+38
+26
+31
++21
+Anzahl
+insgesamt
+128
+975
+668
+781
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+69
+
+---
+
+## Page 68
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Dribkasuwithushalalsgleichzeiteisn
+- Förderung von freiwilligem Engagement -
+Soziodemografische Merkmale
+einsparen
+weiß ich
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+35
+25
+37
++22
+männlich (inkl. divers)
+7
+35
+25
+33
++18
+Altersgruppen
+16 bis unter 30
+7
+36
+24
+33
++17
+30 bis unter 45
+7
+35
+22
+36
++14
+45 bis unter 60
+3
+35
+30
+33
++27
+60 bis unter 75
+3
+36
+28
+33
++25
+75 und älter
+2
+34
+22
+41
++20
+Haushaltstyp
+Einpersonenhaushalt
+5
+33
+28
+35
++23
+Mehrpersonen ohne Kind
+5
+35
+25
+34
++20
+Mehrpersonen mit Kind(ern)
+6
+38
+21
+35
++15
+Alleinerziehende
+5
+44
+27
+23
++22
+Berufstätigkeit
+ganztags berufstätig
+7
+37
+24
+32
++17
+teilzeitbeschäftigt
+4
+34
+28
+35
++24
+Schüler_in/Student_in
+7
+32
+23
+38
++16
+nicht berufstätig
+3
+33
+25
+39
++21
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+25
+29
+43
++25
+Mittlere Reife/ Realschulabschluss
+3
+26
+31
+40
++28
+Abitur/ (Fach-)Hochschulreife
+5
+38
+25
+32
++19
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+7
+27
+21
+45
++14
+Lehre (auch duales System)
+3
+32
+29
+36
++26
+Fachschule/Fachhochschule/BA
+5
+32
+28
+35
++22
+Hochschulabschluss, Promotion
+5
+40
+23
+32
++18
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+36
+25
+34
++21
+Deutsche mit Migrationshintergrund
+7
+27
+28
+37
++21
+Ausländer_innen
+8
+32
+20
+39
++12
+Wohndauer in Freiburg
+unter 5 Jahre
+6
+34
+24
+36
++18
+5 bis unter 15 Jahre
+6
+36
+22
+35
++16
+15 Jahre und länger
+4
+35
+26
+35
++22
+seit Geburt
+4
+34
+30
+32
++27
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+7
+30
+24
+40
++18
+2. Quartil
+4
+35
+29
+32
++25
+3. Quartil
+5
+38
+25
+32
++20
+4. Quartil (höchstes Einkommen)
+5
+40
+25
+30
++20
+Durchschnitt
+insgesamt
+5
+35
+Anzahl
+25
+35
++20
+insgesamt
+130
+887
+637
+898
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+70
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 69
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Förderung der Barrierefreiheit (Bauen und Kommunikation) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+23
+36
+39
++34
+männlich (inkl. divers)
+8
+30
+22
+40
++14
+Altersgruppen
+16 bis unter 30
+4
+23
+35
+38
++31
+30 bis unter 45
+8
+24
+25
+43
++17
+45 bis unter 60
+5
+29
+27
+39
++22
+60 bis unter 75
+2
+31
+32
+34
++30
+75 und älter
+2
+25
+31
+42
++29
+Haushaltstyp
+Einpersonenhaushalt
+5
+24
+31
+40
++26
+Mehrpersonen ohne Kind
+4
+28
+31
+37
++27
+Mehrpersonen mit Kind(ern)
+9
+26
+24
+44
++17
+Alleinerziehende
+10
+33
+23
+34
++13
+Berufstätigkeit
+ganztags berufstätig
+7
+30
+23
+40
++16
+teilzeitbeschäftigt
+3
+22
+34
+41
++31
+Schüler_in/Student_in
+4
+22
+33
+41
++29
+nicht berufstätig
+3
+26
+32
+39
++29
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+24
+30
+41
++26
+Mittlere Reife/ Realschulabschluss
+4
+21
+34
+41
++30
+Abitur/ (Fach-)Hochschulreife
+5
+27
+29
+39
++25
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+20
+28
+47
++23
+Lehre (auch duales System)
+4
+23
+34
+39
++31
+Fachschule/Fachhochschule/BA
+5
+28
+29
+38
++25
+Hochschulabschluss, Promotion
+5
+28
+28
+39
++23
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+5
+27
+29
+40
++25
+Deutsche mit Migrationshintergrund
+4
+23
+35
+38
++32
+Ausländer_innen
+8
+27
+25
+41
++17
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+23
+29
+42
++24
+5 bis unter 15 Jahre
+4
+22
+30
+44
++26
+15 Jahre und länger
+5
+30
+28
+37
++24
+seit Geburt
+5
+28
+32
+35
++27
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+23
+29
+43
++24
+2. Quartil
+3
+26
+34
+36
++31
+3. Quartil
+5
+27
+31
+37
++25
+4. Quartil (hõchstes Einkommen)
+7
+32
+24
+37
++18
+Durchschnitt
+insgesamt
+5
+26
+29
+40
++25
+Anzahl
+insgesamt
+122
+668
+747
+1014
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+71
+
+---
+
+## Page 70
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Wirtschafts- und Tourismusförderung, Messen -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+29
+34
+5
+32
+-24
+männlich (inkl. divers)
+30
+38
+8
+24
+-22
+Altersgruppen
+16 bis unter 30
+32
+34
+9
+27
+-26
+30 bis unter 45
+36
+29
+7
+28
+-29
+45 bis unter 60
+29
+38
+6
+27
+-23
+60 bis unter 75
+26
+43
+6
+24
+-19
+75 und älter
+16
+38
+5
+40
+-10
+Haushaltstyp
+Einpersonenhaushalt
+25
+38
+8
+29
+-18
+Mehrpersonen ohne Kind
+31
+36
+6
+27
+-25
+Mehrpersonen mit Kind(ern)
+35
+32
+5
+28
+-31
+Alleinerziehende
+42
+31
+5
+22
+-37
+Berufstätigkeit
+ganztags berufstätig
+30
+39
+7
+23
+-23
+teilzeitbeschäftigt
+40
+28
+4
+28
+-36
+Schüler_in / Student_in
+37
+30
+5
+28
+-32
+nicht berufstätig
+20
+37
+8
+34
+-12
+Höchster Schulabschluss
+Volks-/Hauptschule
+12
+40
+9
+39
+-2
+Mittlere Reife/ Realschulabschluss
+19
+39
+9
+33
+-10
+Abitur/ (Fach-)Hochschulreife
+35
+35
+6
+25
+-30
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+28
+26
+8
+38
+-20
+Lehre (auch duales System)
+21
+42
+7
+30
+-14
+Fachschule/Fachhochschule/BA
+25
+39
+6
+28
+-16
+Hochschulabschluss, Promotion
+38
+34
+4
+24
+-34
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+33
+36
+5
+27
+-28
+Deutsche mit Migrationshintergrund
+22
+37
+10
+31
+-12
+Ausländer_innen
+20
+32
+15
+33
+-5
+Wohndauer in Freiburg
+unter 5 Jahre
+33
+30
+7
+30
+-26
+5 bis unter 15 Jahre
+33
+33
+9
+28
+-28
+15 Jahre und länger
+29
+37
+5
+29
+-24
+seit Geburt
+23
+42
+9
+25
+-14
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+27
+32
+9
+33
+-18
+2. Quartil
+32
+35
+5
+28
+-28
+3. Quartil
+35
+37
+6
+23
+-30
+4. Quartil (höchstes Einkommen)
+31
+41
+6
+23
+-24
+Durchschnitt
+insgesamt
+30
+35
+6
+28
+-23
+Anzahl
+insgesamt
+761
+904
+165
+722
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+72
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 71
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Kulturförderung (z.B. Bürgerhäuser, Kunst, Chöre) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+9
+48
+18
+25
++9
+männlich (inkl. divers)
+15
+46
+16
+24
++1
+Altersgruppen
+16 bis unter 30
+14
+46
+17
+23
++2
+30 bis unter 45
+13
+45
+17
+25
++4
+45 bis unter 60
+11
+48
+18
+23
++7
+60 bis unter 75
+9
+52
+18
+21
++9
+75 und älter
+7
+45
+15
+33
++8
+Haushaltstyp
+Einpersonenhaushalt
+9
+48
+17
+26
++7
+Mehrpersonen ohne Kind
+12
+47
+18
+23
++7
+Mehrpersonen mit Kind(ern)
+15
+48
+15
+22
+-1
+Alleinerziehende
+13
+50
+22
+15
++10
+Berufstätigkeit
+ganztags berufstätig
+15
+47
+13
+25
+-2
+teilzeitbeschäftigt
+9
+49
+20
+22
++10
+Schüler_in /Student_in
+16
+44
+19
+20
++3
+nicht berufstätig
+6
+46
+20
+28
++13
+Höchster Schulabschluss
+Volks-/Hauptschule
+10
+37
+14
+39
++4
+Mittlere Reife/ Realschulabschluss
+11
+40
+15
+33
++4
+Abitur/ (Fach-)Hochschulreife
+12
+50
+18
+20
++6
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+14
+34
+15
+37
++2
+Lehre (auch duales System)
+12
+44
+14
+30
++3
+Fachschule/Fachhochschule/BA
+11
+49
+17
+23
++6
+Hochschulabschluss, Promotion
+11
+51
+19
+19
++8
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+11
+49
+17
+23
++5
+Deutsche mit Migrationshintergrund
+12
+42
+16
+30
++4
+Ausländer_innen
+12
+36
+20
+31
++8
+Wohndauer in Freiburg
+unter 5 Jahre
+12
+45
+18
+25
++6
+5 bis unter 15 Jahre
+11
+46
+18
+25
++7
+15 Jahre und länger
+10
+48
+19
+24
++9
+seit Geburt
+15
+50
+9
+25
+-6
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+12
+39
+20
+29
++8
+2. Quartil
+6
+48
+19
+24
++10
+3. Quartil
+13
+53
+14
+20
++1
+4. Quartil (hõchstes Einkommen)
+13
+52
+15
+20
++1
+Durchschnitt
+insgesamt
+11
+47
+17
+25
++6
+Anzahl
+insgesamt
+293
+1193
+433
+633
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+73
+
+---
+
+## Page 72
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+DSta Freiburg kann sichu wiriathaushaltihales gleichzeitig leistn
+- Theaterangebote (Städtische Bühnen und freie Theater) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+52
+16
+24
++7
+männlich (inkl. divers)
+16
+49
+11
+24
+-6
+Altersgruppen
+16 bis unter 30
+14
+51
+14
+21
++0
+30 bis unter 45
+13
+48
+14
+25
++1
+45 bis unter 60
+11
+51
+12
+26
++1
+60 bis unter 75
+12
+54
+15
+19
++3
+75 und älter
+8
+51
+13
+28
++4
+Haushaltstyp
+Einpersonenhaushalt
+12
+48
+14
+26
++2
+Mehrpersonen ohne Kind
+12
+52
+14
+22
++2
+Mehrpersonen mit Kind(ern)
+16
+51
+10
+23
+-6
+Alleinerziehende
+7
+51
+26
+17
++19
+Berufstätigkeit
+ganztags berufstätig
+16
+48
+11
+26
+-5
+teilzeitbeschäftigt
+9
+56
+16
+20
++7
+Schüler_in/Student_in
+16
+51
+15
+18
+-1
+nicht berufstätig
+9
+49
+15
+27
++5
+Höchster Schulabschluss
+Volks-/Hauptschule
+12
+37
+11
+41
+-1
+Mittlere Reife/ Realschulabschluss
+11
+44
+11
+33
++0
+Abitur/ (Fach-)Hochschulreife
+13
+54
+15
+19
++2
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+13
+39
+11
+37
+-3
+Lehre (auch duales System)
+12
+46
+11
+31
+-0
+Fachschule/Fachhochschule/BA
+13
+50
+14
+23
++1
+Hochschulabschluss, Promotion
+12
+55
+15
+17
++3
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+13
+52
+13
+22
++0
+Deutsche mit Migrationshintergrund
+12
+45
+14
+30
++2
+Ausländer_innen
+12
+42
+17
+30
++5
+Wohndauer in Freiburg
+unter 5 Jahre
+12
+47
+17
+24
++5
+5 bis unter 15 Jahre
+12
+53
+11
+24
+-1
+15 Jahre und länger
+11
+51
+15
+23
++4
+seit Geburt
+17
+50
+8
+25
+-9
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+12
+42
+15
+31
++3
+2. Quartil
+10
+55
+13
+22
++3
+3. Quartil
+13
+55
+12
+19
+-1
+4. Quartil (höchstes Einkommen)
+16
+53
+12
+19
+-3
+Durchschnitt
+insgesamt
+12
+50
+13
+24
++1
+Anzahl
+insgesamt
+318
+1278
+344
+612
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+74
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 73
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Musikangebote (z.B. Musikschulen, Konzerte, Vereinszuschüsse) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+7
+49
+19
+25
++12
+männlich (inkl. divers)
+10
+49
+18
+22
++8
+Altersgruppen
+16 bis unter 30
+11
+46
+20
+24
++9
+30 bis unter 45
+10
+47
+20
+23
++10
+45 bis unter 60
+7
+49
+20
+24
++14
+60 bis unter 75
+9
+55
+17
+19
++8
+75 und älter
+5
+50
+13
+32
++8
+Haushaltstyp
+Einpersonenhaushalt
+8
+46
+19
+27
+||+
+Mehrpersonen ohne Kind
+9
+51
+18
+22
++9
+Mehrpersonen mit Kind(ern)
+10
+50
+19
+21
++9
+Alleinerziehende
+4
+55
+29
+12
++25
+Berufstätigkeit
+ganztags berufstätig
+12
+48
+16
+24
++4
+teilzeitbeschäftigt
+5
+51
+22
+21
++17
+Schüler_in /Student_in
+12
+47
+21
+20
+6+
+nicht berufstätig
+6
+48
+18
+27
++12
+Höchster Schulabschluss
+Volks-/Hauptschule
+9
+34
+17
+40
++8
+Mittlere Reife/ Realschulabschluss
+7
+47
+16
+31
++9
+Abitur/ (Fach-)Hochschulreife
+6
+52
+20
+19
++11
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+38
+15
+36
++5
+Lehre (auch duales System)
+9
+43
+17
+31
++8
+Fachschule/Fachhochschule/BA
+8
+53
+18
+21
+6+
+Hochschulabschluss, Promotion
+9
+52
+21
+18
++13
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+51
+18
+22
++10
+Deutsche mit Migrationshintergrund
+8
+46
+18
+28
++10
+Ausländer_innen
+12
+39
+20
+29
++8
+Wohndauer in Freiburg
+unter 5 Jahre
+10
+45
+19
+25
++9
+5 bis unter 15 Jahre
+8
+49
+20
+24
++13
+15 Jahre und länger
+8
+51
+19
+22
++10
+seit Geburt
+9
+50
+15
+25
++6
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+10
+39
+21
+30
++11
+2. Quartil
+7
+50
+20
+23
++12
+3. Quartil
+9
+56
+16
+19
++7
+4. Quartil (hõchstes Einkommen)
+10
+52
+18
+19
++8
+Durchschnitt
+insgesamt
+9
+49
+19
+24
++10
+Anzahl
+insgesamt
+224
+1243
+474
+610
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+75
+
+---
+
+## Page 74
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+DSta Freiburg kann sichu winrivathaushaltnih alesgleichzeitigleistn
+- Städtische Museen und Stadtarchiv -
+Soziodemografische Merkmale
+einsparen
+weiß ich
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+11
+54
+11
+24
+-0
+männlich (inkl. divers)
+15
+54
+10
+22
+-5
+Altersgruppen
+16 bis unter 30
+16
+49
+13
+23
+-3
+30 bis unter 45
+14
+52
+11
+23
+-3
+45 bis unter 60
+13
+55
+6
+24
+-4
+60 bis unter 75
+11
+58
+11
+20
+-0
+75 und älter
+7
+56
+8
+30
++1
+Haushaltstyp
+Einpersonenhaushalt
+11
+52
+12
+24
++1
+Mehrpersonen ohne Kind
+14
+54
+10
+22
+-4
+Mehrpersonen mit Kind(ern)
+15
+56
+8
+21
+-6
+Alleinerziehende
+11
+58
+17
+15
++6
+Berufstätigkeit
+ganztags berufstätig
+16
+52
+9
+23
+-7
+teilzeitbeschäftigt
+13
+56
+6
+22
+-4
+Schüler_in /Student_in
+14
+50
+15
+21
++2
+nicht berufstätig
+8
+53
+12
+26
++4
+Höchster Schulabschluss
+Volks-/Hauptschule
+14
+40
+8
+38
+-6
+Mittlere Reife/ Realschulabschluss
+13
+47
+10
+30
+-3
+Abitur/ (Fach-)Hochschulreife
+13
+57
+11
+19
+-3
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+13
+38
+11
+38
+-2
+Lehre (auch duales System)
+13
+47
+11
+29
+-2
+Fachschule/Fachhochschule/BA
+13
+56
+11
+21
+-2
+Hochschulabschluss, Promotion
+13
+59
+11
+17
+-2
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+14
+55
+10
+22
+-4
+Deutsche mit Migrationshintergrund
+10
+51
+11
+27
++1
+Ausländer_innen
+10
+47
+16
+27
++6
+Wohndauer in Freiburg
+unter 5 Jahre
+15
+46
+15
+25
++0
+5 bis unter 15 Jahre
+14
+53
+10
+23
+-5
+15 Jahre und länger
+11
+56
+10
+23
+-1
+seit Geburt
+14
+57
+7
+23
+-7
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+11
+47
+14
+28
++2
+2. Quartil
+14
+55
+11
+20
+-3
+3. Quartil
+13
+58
+10
+19
+-4
+4. Quartil (höchstes Einkommen)
+16
+56
+9
+20
+-7
+Durchschnitt
+insgesamt
+13
+53
+11
+23
+-2
+Anzahl
+insgesamt
+£E1
+1352
+273
+596
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+76
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 75
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Bildungseinrichtungen (z.B. Stadtbibliothek, Volkshochschule, Planetarium) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+60
+18
+20
++16
+männlich (inkl. divers)
+5
+57
+17
+21
++12
+Altersgruppen
+16 bis unter 30
+5
+54
+21
+20
++17
+30 bis unter 45
+4
+09
+18
+19
++14
+45 bis unter 60
+4
+59
+18
+20
++14
+60 bis unter 75
+4
+61
+16
+19
++12
+75 und älter
+2
+57
+12
+29
++9
+Haushaltstyp
+Einpersonenhaushalt
+4
+55
+19
+22
++15
+Mehrpersonen ohne Kind
+4
+59
+16
+21
++12
+Mehrpersonen mit Kind(ern)
+3
+64
+19
+14
++16
+Alleinerziehende
+5
+62
+18
+15
++13
+Berufstätigkeit
+ganztags berufstätig
+5
+59
+16
+20
+1|+
+teilzeitbeschäftigt
+3
+19
+19
+17
++15
+Schüler_in/Student_in
+4
+53
+22
+21
++18
+nicht berufstätig
+2
+56
+17
+24
++14
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+47
+11
+39
++8
+Mittlere Reife/ Realschulabschluss
+4
+53
+17
+26
++13
+Abitur/ (Fach-)Hochschulreife
+4
+62
+18
+17
++14
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+5
+41
+18
+37
++13
+Lehre (auch duales System)
+3
+55
+16
+25
++13
+Fachschule/Fachhochschule/BA
+4
+61
+16
+19
++12
+Hochschulabschluss, Promotion
+4
+63
+18
+15
++15
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+09
+17
+19
++13
+Deutsche mit Migrationshintergrund
+4
+59
+14
+24
++10
+Ausländer_innen
+4
+45
+27
+23
++23
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+52
+21
+22
++15
+5 bis unter 15 Jahre
+3
+58
+19
+21
++16
+15 Jahre und länger
+3
+62
+16
+19
++13
+seit Geburt
+5
+09
+14
+21
++9
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+4
+52
+20
+24
++17
+2. Quartil
+3
+60
+18
+19
++16
+3. Quartil
+4
+63
+16
+16
++12
+4. Quartil (höchstes Einkommen)
+4
+62
+17
+17
++13
+Durchschnitt
+insgesamt
+4
+58
+17
+21
++14
+Anzahl
+insgesamt
+97
+1481
+445
+529
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 1o Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+77
+
+---
+
+## Page 76
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten..
+- Klimaschutz (Energiesparen, Wärmedämmung, Co2-Reduktion) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+24
+51
+20
++46
+männlich (inkl. divers)
+13
+26
+46
+15
++34
+Altersgruppen
+16 bis unter 30
+7
+19
+59
+15
++52
+30 bis unter 45
+11
+24
+49
+16
++38
+45 bis unter 60
+9
+26
+47
+18
++39
+60 bis unter 75
+8
+31
+45
+17
++37
+75 und älter
+7
+28
+39
+26
++32
+Haushaltstyp
+Einpersonenhaushalt
+9
+24
+48
+20
++38
+Mehrpersonen ohne Kind
+6
+26
+50
+15
++42
+Mehrpersonen mit Kind(ern)
+9
+25
+50
+17
++41
+Alleinerziehende
+12
+26
+42
+19
++30
+Berufstätigkeit
+ganztags berufstätig
+12
+28
+44
+17
++32
+teilzeitbeschäftigt
+5
+21
+59
+15
++54
+Schüler_in /Student_in
+6
+16
+63
+14
++57
+nicht berufstätig
+8
+28
+42
+22
++34
+Höchster Schulabschluss
+Volks-/Hauptschule
+7
+29
+36
+27
++29
+Mittlere Reife/Realschulabschluss
+10
+28
+40
+22
++30
+Abitur/ (Fach-)Hochschulreife
+8
+24
+54
+14
++46
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+9
+17
+50
+25
++41
+Lehre (auch duales System)
+9
+28
+42
+21
++33
+Fachschule/Fachhochschule/BA
+11
+27
+45
+18
++35
+Hochschulabschluss, Promotion
+7
+25
+55
+13
++47
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+8
+25
+52
+16
++44
+Deutsche mit Migrationshintergrund
+|
+26
+40
+23
++29
+Ausländer_innen
+15
+26
+38
+21
++23
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+19
+56
+18
++50
+5 bis unter 15 Jahre
+8
+23
+54
+15
++46
+15 Jahre und länger
+8
+27
+46
+19
++38
+seit Geburt
+13
+34
+38
+15
++24
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+10
+22
+49
+19
++39
+2. Quartil
+7
+23
+53
+17
++46
+3. Quartil
+6
+30
+49
+15
++42
+4. Quartil (höchstes Einkommen)
+10
+27
+51
+13
++41
+Durchschnitt
+insgesamt
+9
+25
+49
+18
++40
+Anzahl
+insgesamt
+226
+634
+1243
+448
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+70
+
+---
+
+## Page 77
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten..
+- Naturschutz (z.B. Schutzgebiete, Artenschutz) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+34
+43
+20
++40
+männlich (inkl. divers)
+7
+41
+35
+17
++27
+Altersgruppen
+16 bis unter 30
+4
+31
+49
+16
++44
+30 bis unter 45
+6
+39
+36
+18
++30
+45 bis unter 60
+5
+36
+40
+19
++35
+60 bis unter 75
+4
+42
+36
+18
++31
+75 und älter
+5
+40
+30
+26
++25
+Haushaltstyp
+Einpersonenhaushalt
+4
+35
+40
+21
++36
+Mehrpersonen ohne Kind
+5
+37
+41
+16
++36
+Mehrpersonen mit Kind(ern)
+6
+39
+36
+19
++30
+Alleinerziehende
+6
+47
+25
+23
++18
+Berufstätigkeit
+ganztags berufstätig
+6
+41
+36
+17
++30
+teilzeitbeschäftigt
+3
+34
+44
+18
++40
+Schüler_in /Student_in
+5
+27
+52
+16
++47
+nicht berufstätig
+5
+38
+35
+22
++30
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+35
+35
+26
++31
+Mittlere Reife/ Realschulabschluss
+5
+37
+36
+22
++32
+Abitur/ (Fach-)Hochschulreife
+5
+38
+41
+16
++37
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+25
+44
+26
++38
+Lehre (auch duales System)
+4
+37
+38
+21
++33
+Fachschule/Fachhochschule/BA
+7
+38
+37
+18
++29
+Hochschulabschluss, Promotion
+4
+39
+40
+16
++36
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+4
+38
+41
+17
++37
+Deutsche mit Migrationshintergrund
+6
+34
+33
+24
++24
+Ausländer_innen
+8
+36
+34
+22
++25
+Wohndauer in Freiburg
+unter 5 Jahre
+5
+32
+46
+18
++41
+5 bis unter 15 Jahre
+4
+37
+40
+19
++36
+15 Jahre und länger
+5
+38
+38
+20
++32
+seit Geburt
+7
+44
+31
+17
++24
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+32
+41
+21
++35
+2. Quartil
+3
+37
+44
+16
++41
+3. Quartil
+4
+42
+37
+17
++33
+4. Quartil (höchstes Einkommen)
+7
+42
+36
+15
++29
+Durchschnitt
+insgesamt
+5
+37
+39
+19
++34
+Anzahl
+insgesamt
+133
+943
+966
+480
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+79
+
+---
+
+## Page 78
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Dahusaeihzeten
+- Parks und Grünanlagen -
+Soziodemografische Merkmale
+einsparen
+weiß ich
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+51
+33
+13
++31
+männlich (inkl. divers)
+4
+56
+28
+12
++24
+Altersgruppen
+16 bis unter 30
+4
+48
+36
+12
++31
+30 bis unter 45
+3
+53
+32
+12
++28
+45 bis unter 60
+2
+54
+30
+14
++28
+60 bis unter 75
+2
+57
+29
+12
++27
+75 und älter
+2
+58
+22
+18
++20
+Haushaltstyp
+Einpersonenhaushalt
+3
+49
+35
+13
++32
+Mehrpersonen ohne Kind
+3
+56
+29
+12
++26
+Mehrpersonen mit Kind(ern)
+4
+54
+30
+12
++27
+Alleinerziehende
+3
+52
+32
+13
++29
+Berufstätigkeit
+ganztags berufstätig
+3
+54
+31
+12
++27
+teilzeitbeschäftigt
+3
+54
+32
+12
++30
+Schüler_in/Student_in
+5
+49
+34
+12
++29
+nicht berufstätig
+2
+53
+28
+16
++26
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+44
+33
+21
++31
+Mittlere Reife/ Realschulabschluss
+3
+45
+37
+15
++33
+Abitur/ (Fach-)Hochschulreife
+3
+57
+30
+10
++27
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+37
+35
+24
++31
+Lehre (auch duales System)
+3
+46
+38
+14
++35
+Fachschule/Fachhochschule/BA
+4
+54
+29
+13
++25
+Hochschulabschluss, Promotion
+2
+61
+27
+10
++25
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+56
+30
+12
++27
+Deutsche mit Migrationshintergrund
+4
+45
+34
+17
++30
+Ausländer_innen
+5
+44
+35
+17
++30
+Wohndauer in Freiburg
+unter 5 Jahre
+4
+49
+34
+12
++30
+5 bis unter 15 Jahre
+4
+55
+31
+11
++27
+15 Jahre und länger
+2
+55
+28
+15
++27
+seit Geburt
+3
+53
+32
+12
++30
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+46
+34
+15
++30
+2. Quartil
+3
+55
+32
+10
++29
+3. Quartil
+3
+58
+31
+9
++28
+4. Quartil (hõchstes Einkommen)
+2
+59
+28
+11
++26
+Durchschnitt
+insgesamt
+3
+53
+31
+13
++28
+Anzahl
+insgesamt
+78
+1354
+784
+336
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+80
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 79
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich  genau wie ein Privathaushalt - nicht alles gleichzeitig leisten
+- Stadtwald (Waldpflege, Wegenetz, Erholungs- und Freizeitangebote) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+3
+55
+22
+20
++19
+männlich (inkl. divers)
+5
+09
+19
+15
++14
+Altersgruppen
+16 bis unter 30
+4
+52
+25
+19
++21
+30 bis unter 45
+5
+60
+19
+16
++13
+45 bis unter 60
+4
+57
+23
+17
++19
+60 bis unter 75
+4
+09
+20
+16
++16
+75 und älter
+1
+62
+17
+21
++16
+Haushaltstyp
+Einpersonenhaushalt
+3
+56
+23
+17
++20
+Mehrpersonen ohne Kind
+4
+09
+19
+17
++16
+Mehrpersonen mit Kind(ern)
+5
+59
+19
+17
++14
+Alleinerziehende
+6
+51
+30
+13
++24
+Berufstätigkeit
+ganztags berufstätig
+5
+58
+21
+16
++16
+teilzeitbeschäftigt
+3
+09
+20
+17
++18
+Schüler_in /Student_in
+3
+55
+22
+20
++20
+nicht berufstätig
+3
+56
+20
+21
++16
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+47
+27
+23
++25
+Mittlere Reife/ Realschulabschluss
+2
+51
+26
+20
++24
+Abitur/ (Fach-)Hochschulreife
+4
+61
+19
+16
++16
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+43
+23
+30
++19
+Lehre (auch duales System)
+2
+54
+24
+19
++22
+Fachschule/Fachhochschule/BA
+5
+58
+22
+15
++17
+Hochschulabschluss, Promotion
+4
+63
+18
+15
++14
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+60
+20
+16
++16
+Deutsche mit Migrationshintergrund
+5
+43
+27
+25
++22
+Ausländer_innen
+6
+53
+21
+20
++15
+Wohndauer in Freiburg
+unter 5 Jahre
+3
+55
+21
+21
++18
+5 bis unter 15 Jahre
+5
+57
+20
+18
++14
+15 Jahre und länger
+3
+59
+21
+17
++18
+seit Geburt
+4
+59
+22
+15
++18
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+5
+49
+23
+23
++18
+2. Quartil
+3
+58
+23
+16
++19
+3. Quartil
+3
+65
+18
+13
++16
+4. Quartil (höchstes Einkommen)
+4
+64
+19
+13
++15
+Durchschnitt
+insgesamt
+4
+57
+21
+18
++17
+Anzahl
+insgesamt
+100
+1464
+527
+461
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+81
+
+---
+
+## Page 80
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+kanwuseczits
+-Friedhöfe (z.B. Verwaltung, Pflege von Friedhofsanlagen) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+8
+44
+4
+44
+-4
+männlich (inkl. divers)
+13
+47
+4
+37
+-9
+Altersgruppen
+16 bis unter 30
+14
+36
+2
+48
+-13
+30 bis unter 45
+14
+38
+2
+45
+-11
+45 bis unter 60
+10
+43
+2
+44
+-8
+60 bis unter 75
+6
+60
+7
+27
++1
+75 und älter
+2
+62
+8
+28
++6
+Haushaltstyp
+Einpersonenhaushalt
+8
+49
+6
+37
+-3
+Mehrpersonen ohne Kind
+11
+47
+3
+39
+-8
+Mehrpersonen mit Kind(ern)
+14
+36
+2
+48
+-12
+Alleinerziehende
+21
+33
+5
+41
+-17
+Berufstätigkeit
+ganztags berufstätig
+13
+43
+3
+41
+-10
+teilzeitbeschäftigt
+13
+40
+2
+45
+-10
+Schüler_in /Student_in
+13
+40
+1
+46
+-12
+nicht berufstätig
+5
+52
+9
+36
++1
+Höchster Schulabschluss
+Volks-/Hauptschule
+3
+53
+11
+33
++8
+Mittlere Reife/ Realschulabschluss
+5
+52
+6
+37
++1
+Abitur/ (Fach-)Hochschulreife
+12
+45
+2
+41
+-10
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+35
+4
+51
+-6
+Lehre (auch duales System)
+5
+53
+7
+35
++2
+Fachschule/Fachhochschule/BA
+11
+46
+4
+39
+-7
+Hochschulabschluss, Promotion
+13
+44
+2
+41
+-12
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+11
+47
+3
+39
+-7
+Deutsche mit Migrationshintergrund
+10
+40
+9
+44
+-4
+Ausländer_innen
+10
+34
+4
+51
+-6
+Wohndauer in Freiburg
+unter 5 Jahre
+11
+37
+1
+51
+-9
+5 bis unter 15 Jahre
+14
+38
+2
+46
+-12
+15 Jahre und länger
+9
+50
+4
+37
+-5
+seit Geburt
+9
+57
+8
+26
+-1
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+10
+41
+5
+44
+-5
+2. Quartil
+10
+48
+4
+38
+-7
+3. Quartil
+12
+50
+2
+36
+-10
+4. Quartil (hõchstes Einkommen)
+13
+45
+4
+39
+-9
+Durchschnitt
+insgesamt
+11
+45
+4
+Anzahl
+41
+-7
+insgesamt
+269
+1147
+93
+1043
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+82
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 81
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Abfallbeseitigung und Sauberkeit in der Stadt -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+56
+32
+11
++30
+männlich (inkl. divers)
+2
+09
+28
+10
++27
+Altersgruppen
+16 bis unter 30
+2
+66
+20
+13
++18
+30 bis unter 45
+3
+63
+25
+9
++22
+45 bis unter 60
+1
+56
+33
+10
++31
+60 bis unter 75
+1
+49
+42
+8
++41
+75 und älter
+o
+48
+38
+13
++38
+Haushaltstyp
+Einpersonenhaushalt
+1
+56
+33
+11
++31
+Mehrpersonen ohne Kind
+2
+57
+31
+10
++30
+Mehrpersonen mit Kind(ern)
+3
+63
+26
+8
++23
+Alleinerziehende
+o
+74
+16
+11
++16
+Berufstätigkeit
+ganztags berufstätig
+2
+59
+31
+8
++29
+teilzeitbeschäftigt
+2
+64
+23
+11
++22
+Schüler_in /Student_in
+1
+68
+18
+13
++16
+nicht berufstätig
+2
+47
+39
+12
++37
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+36
+44
+17
++43
+Mittlere Reife/ Realschulabschluss
+1
+49
+40
+10
++40
+Abitur/ (Fach-)Hochschulreife
+2
+64
+26
+9
++24
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+3
+49
+24
+24
++20
+Lehre (auch duales System)
+1
+52
+39
+9
++38
+Fachschule/Fachhochschule/BA
+2
+55
+35
+6
++33
+Hochschulabschluss, Promotion
+2
+66
+24
+8
++23
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+62
+28
+9
++27
+Deutsche mit Migrationshintergrund
+3
+47
+38
+13
++35
+Ausländer_innen
+4
+41
+39
+16
++35
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+63
+24
+12
++22
+5 bis unter 15 Jahre
+3
+63
+24
+10
++22
+15 Jahre und länger
+1
+55
+34
+10
++33
+seit Geburt
+1
+52
+38
+10
++37
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+53
+29
+15
++26
+2. Quartil
+1
+57
+32
+9
++31
+3. Quartil
+2
+64
+28
+7
++26
+4. Quartil (höchstes Einkommen)
+1
+64
+29
+6
++28
+Durchschnitt
+insgesamt
+2
+58
+30
+11
++28
+Anzahl
+insgesamt
+44
+1469
+767
+272
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+83
+
+---
+
+## Page 82
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Debgkau wvathusltlsgeichzeitis
+- Öffentliche Sicherheit und Ordnung -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+37
+46
+13
++41
+männlich (inkl. divers)
+7
+40
+42
+11
++35
+Altersgruppen
+16 bis unter 30
+12
+41
+34
+13
++22
+30 bis unter 45
+6
+44
+37
+10
++28
+45 bis unter 60
+1
+35
+51
+12
++50
+60 bis unter 75
+2
+36
+54
+8
++51
+75 und älter
+1
+32
+50
+17
++49
+Haushaltstyp
+Einpersonenhaushalt
+4
+36
+48
+12
++44
+Mehrpersonen ohne Kind
+7
+39
+43
+11
++36
+Mehrpersonen mit Kind(ern)
+7
+42
+42
+10
++35
+Alleinerziehende
+2
+44
+39
+15
++37
+Berufstätigkeit
+ganztags berufstätig
+4
+39
+46
+10
++42
+teilzeitbeschäftigt
+8
+44
+36
+12
++28
+Schüler_in/Student_in
+13
+42
+32
+12
++19
+nicht berufstätig
+4
+33
+50
+14
++46
+Höchster Schulabschluss
+Volks-/Hauptschule
+2
+20
+60
+19
++58
+Mittlere Reife/ Realschulabschluss
+1
+26
+61
+13
++61
+Abitur/ (Fach-)Hochschulreife
+7
+44
+39
+10
++31
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+10
+31
+36
+23
++26
+Lehre (auch duales System)
+1
+24
+63
+11
++62
+Fachschule/Fachhochschule/BA
+3
+37
+49
+10
++46
+Hochschulabschluss, Promotion
+8
+48
+34
+10
++26
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+6
+41
+42
+11
++36
+Deutsche mit Migrationshintergrund
+6
+26
+57
+12
++51
+Ausländer_innen
+5
+34
+46
+15
++41
+Wohndauer in Freiburg
+unter 5 Jahre
+8
+44
+36
+13
++28
+5 bis unter 15 Jahre
+11
+42
+35
+12
++24
+15 Jahre und länger
+3
+38
+48
+12
++45
+seit Geburt
+3
+27
+59
+11
++57
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+34
+43
+14
++35
+2. Quartil
+8
+38
+45
+9
++37
+3. Quartil
+9
+42
+43
+9
++37
+4. Quartil (höchstes Einkommen)
+3
+44
+44
+9
++41
+Durchschnitt
+insgesamt
+6
+38
+44
+Anzahl
+12
++38
+insgesamt
+151
+978
+1116
+307
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+84
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 83
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+DieStadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten
+- Feuerwehr / Katastrophenschutz -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+1
+47
+18
+34
++16
+männlich (inkl. divers)
+2
+53
+17
+28
++15
+Altersgruppen
+16 bis unter 30
+3
+46
+14
+37
++11
+30 bis unter 45
+3
+53
+12
+32
++10
+45 bis unter 60
+1
+50
+20
+30
++19
+60 bis unter 75
+1
+52
+22
+25
++20
+75 und älter
+1
+47
+24
+28
++23
+Haushaltstyp
+Einpersonenhaushalt
+1
+46
+20
+33
++19
+Mehrpersonen ohne Kind
+2
+52
+17
+29
++15
+Mehrpersonen mit Kind(ern)
+3
+53
+14
+30
+||+
+Alleinerziehende
+o
+51
+17
+32
++17
+Berufstätigkeit
+ganztags berufstätig
+2
+52
+18
+28
++15
+teilzeitbeschäftigt
+1
+51
+12
+36
++11
+Schüler_in/Student_in
+3
+44
+12
+41
++9
+nicht berufstätig
+1
+48
+22
+29
++21
+Höchster Schulabschluss
+Volks-/Hauptschule
+1
+37
+36
+27
++35
+Mittlere Reife/ Realschulabschluss
+1
+44
+28
+27
++28
+Abitur/ (Fach-)Hochschulreife
+2
+54
+13
+32
++11
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+2
+42
+17
+39
++15
+Lehre (auch duales System)
+1
+43
+27
+29
++26
+Fachschule/Fachhochschule/BA
+2
+52
+18
+28
++16
+Hochschulabschluss, Promotion
+2
+54
+12
+32
++10
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+1
+52
+16
+31
++15
+Deutsche mit Migrationshintergrund
+4
+42
+26
+29
++22
+Ausländer_innen
+5
+42
+20
+34
++15
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+44
+14
+40
++12
+5 bis unter 15 Jahre
+3
+49
+15
+33
++11
+15 Jahre und länger
+1
+52
+18
+29
++17
+seit Geburt
+1
+54
+24
+20
++23
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+3
+42
+21
+35
++18
+2. Quartil
+2
+47
+23
+28
++21
+3. Quartil
+2
+56
+12
+29
++10
+4. Quartil (höchstes Einkommen)
+1
+58
+12
+29
++11
+Durchschnitt
+insgesamt
+2
+49
+17
+31
++15
+Anzahl
+insgesamt
+49
+1263
+443
+797
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. Amt für Bürgerservice und Informationsmanagement
+85
+
+---
+
+## Page 84
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+- Straßen-Netz für den motorisierten Verkehr (z.B. PKWs, LKWs, Busse) -
+Soziodemografische Merkmale
+einsparen
+unverändert
+mehr ausgeben
+weiß ich
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+28
+40
+15
+18
+-13
+männlich (inkl. divers)
+34
+34
+20
+12
+-14
+Altersgruppen
+16 bis unter 30
+43
+31
+12
+14
+-31
+30 bis unter 45
+34
+35
+18
+12
+-16
+45 bis unter 60
+28
+36
+19
+17
+-9
+60 bis unter 75
+23
+42
+20
+15
+-3
+75 und älter
+15
+46
+18
+21
++2
+Haushaltstyp
+Einpersonenhaushalt
+27
+41
+17
+16
+-10
+Mehrpersonen ohne Kind
+32
+37
+17
+14
+-15
+Mehrpersonen mit Kind(ern)
+36
+32
+18
+14
+-18
+Alleinerziehende
+21
+37
+26
+17
++5
+Berufstätigkeit
+ganztags berufstätig
+28
+37
+22
+13
+-6
+teilzeitbeschäftigt
+40
+34
+11
+15
+-29
+Schüler_in /Student_in
+47
+30
+8
+15
+-39
+nicht berufstätig
+21
+41
+19
+20
+-2
+Höchster Schulabschluss
+Volks-/Hauptschule
+6
+43
+28
+23
++22
+Mittlere Reife/ Realschulabschluss
+13
+37
+29
+21
++16
+Abitur/ (Fach-)Hochschulreife
+38
+37
+14
+12
+-24
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+31
+30
+12
+28
+-19
+Lehre (auch duales System)
+16
+41
+28
+15
++12
+Fachschule/Fachhochschule/BA
+22
+41
+20
+16
+-2
+Hochschulabschluss, Promotion
+42
+35
+11
+11
+-31
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+34
+37
+16
+13
+-19
+Deutsche mit Migrationshintergrund
+19
+36
+26
+18
++7
+Ausländer_innen
+16
+40
+19
+24
++3
+Wohndauer in Freiburg
+unter 5 Jahre
+40
+32
+12
+16
+-28
+5 bis unter 15 Jahre
+37
+34
+15
+14
+-23
+15 Jahre und länger
+27
+39
+17
+17
+-9
+seit Geburt
+17
+43
+27
+13
++10
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+31
+33
+18
+19
+-13
+2. Quartil
+32
+39
+16
+14
+-16
+3. Quartil
+35
+40
+15
+10
+-21
+4. Quartil (höchstes Einkommen)
+34
+40
+16
+10
+-18
+Durchschnitt
+insgesamt
+30
+37
+17
+15
+-13
+Anzahl
+insgesamt
+778
+939
+440
+394
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+86
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 85
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten...
+- Öffentlicher Nahverkehr (Bahnen und Busse) -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+2
+46
+42
+10
++40
+männlich (inkl. divers)
+5
+45
+41
+9
++37
+Altersgruppen
+16 bis unter 30
+3
+40
+48
+9
++45
+30 bis unter 45
+5
+45
+42
+8
++37
+45 bis unter 60
+3
+46
+41
+10
++38
+60 bis unter 75
+2
+49
+39
+10
++37
+75 und älter
+2
+53
+33
+12
++31
+Haushaltstyp
+Einpersonenhaushalt
+3
+48
+39
+9
++36
+Mehrpersonen ohne Kind
+3
+44
+44
+10
++40
+Mehrpersonen mit Kind(ern)
+4
+44
+45
+7
++41
+Alleinerziehende
+o
+54
+36
+11
++36
+Berufstätigkeit
+ganztags berufstätig
+5
+47
+39
+9
++35
+teilzeitbeschäftigt
+2
+44
+46
+9
++44
+Schüler_in / Student_in
+2
+42
+48
+8
++45
+nicht berufstätig
+4
+45
+40
+12
++36
+Höchster Schulabschluss
+Volks-/Hauptschule
+4
+43
+33
+19
++29
+Mittlere Reife/Realschulabschluss
+4
+46
+38
+11
++34
+Abitur/ (Fach-)Hochschulreife
+3
+46
+45
+7
++42
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+4
+38
+36
+22
++32
+Lehre (auch duales System)
+4
+47
+38
+10
++34
+Fachschule/Fachhochschule/BA
+4
+47
+40
+8
++36
+Hochschulabschluss, Promotion
+2
+46
+46
+6
++44
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+3
+45
+44
+8
++42
+Deutsche mit Migrationshintergrund
+4
+46
+36
+14
++31
+Ausländer_innen
+9
+45
+31
+16
++22
+Wohndauer in Freiburg
+unter 5 Jahre
+2
+46
+43
+9
++40
+5 bis unter 15 Jahre
+4
+43
+44
+9
++40
+15 Jahre und länger
+3
+46
+40
+11
++37
+seit Geburt
+4
+49
+39
+8
++36
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+6
+41
+42
+11
++37
+2. Quartil
+2
+47
+43
+8
++41
+3. Quartil
+2
+49
+42
+6
++40
+4. Quartil (höchstes Einkommen)
+3
+47
+43
+7
++40
+Durchschnitt
+insgesamt
+3
+45
+42
+10
++38
+Anzahl
+insgesamt
+88
+1150
+1064
+250
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+87
+
+---
+
+## Page 86
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Die Stadt Freiburg kann sich  genau wie ein Privathaushalt - nicht alles gleichzeitig leisten
+- Radwege-Netz -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+8
+46
+33
+13
++26
+männlich (inkl. divers)
+11
+41
+38
+10
++27
+Altersgruppen
+16 bis unter 30
+8
+44
+38
+9
++30
+30 bis unter 45
+10
+44
+39
+8
++29
+45 bis unter 60
+6
+40
+41
+10
++32
+60 bis unter 75
+11
+44
+31
+15
++20
+75 und älter
+9
+50
+17
+24
++8
+Haushaltstyp
+Einpersonenhaushalt
+10
+47
+29
+14
++19
+Mehrpersonen ohne Kind
+10
+43
+37
+10
++27
+Mehrpersonen mit Kind(ern)
+7
+41
+44
+8
++36
+Alleinerziehende
+10
+43
+34
+13
++25
+Berufstätigkeit
+ganztags berufstätig
+12
+45
+34
+9
++22
+teilzeitbeschäftigt
+5
+36
+49
+9
++44
+Schüler_in/Student_in
+9
+47
+39
+8
++34
+nicht berufstätig
+10
+45
+26
+19
++16
+Höchster Schulabschluss
+Volks-/Hauptschule
+9
+42
+25
+24
++16
+Mittlere Reife/ Realschulabschluss
+17
+42
+27
+15
++10
+Abitur/ (Fach-)Hochschulreife
+8
+45
+40
+8
++32
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+11
+37
+29
+23
++18
+Lehre (auch duales System)
+16
+41
+29
+13
++13
+Fachschule/Fachhochschule/BA
+10
+48
+31
+11
++21
+Hochschulabschluss, Promotion
+5
+43
+43
+8
++38
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+9
+44
+38
+9
++30
+Deutsche mit Migrationshintergrund
+12
+43
+26
+19
++13
+Ausländer_innen
+12
+43
+25
+20
++13
+Wohndauer in Freiburg
+unter 5 Jahre
+7
+46
+37
+11
++30
+5 bis unter 15 Jahre
+8
+39
+43
+10
++35
+15 Jahre und länger
+8
+44
+34
+14
++26
+seit Geburt
+18
+45
+25
+12
++7
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+11
+42
+32
+15
++22
+2. Quartil
+8
+45
+36
+11
++28
+3. Quartil
+10
+45
+38
+6
++29
+4. Quartil (höchstes Einkommen)
+8
+45
+39
+9
++31
+Durchschnitt
+insgesamt
+9
+43
+35
+12
++26
+Anzahl
+insgesamt
+241
+1106
+899
+306
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+88
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 87
+
+Freiburg-Umfrage 2024
+Beteiligungshaushalt 2025 / 26
+Die Stadt Freiburg kann sich - genau wie ein Privathaushalt - nicht alles gleichzeitig leisten.
+- Fußwege-Netz -
+Soziodemografische Merkmale
+weiß ich
+einsparen
+unverändert
+mehr ausgeben
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+5
+09
+24
+11
++19
+männlich (inkl. divers)
+8
+59
+22
+11
++14
+Altersgruppen
+16 bis unter 30
+6
+61
+22
+10
++15
+30 bis unter 45
+9
+09
+23
+9
++14
+45 bis unter 60
+7
+55
+26
+12
++18
+60 bis unter 75
+4
+62
+23
+10
++19
+75 und älter
+1
+62
+20
+17
++20
+Haushaltstyp
+Einpersonenhaushalt
+5
+63
+22
+11
++17
+Mehrpersonen ohne Kind
+7
+59
+23
+11
++16
+Mehrpersonen mit Kind(ern)
+7
+58
+26
+9
++19
+Alleinerziehende
+10
+55
+25
+11
++15
+Berufstätigkeit
+ganztags berufstätig
+9
+61
+19
+11
++10
+teilzeitbeschäftigt
+6
+56
+28
+10
++23
+Schüler_in /Student_in
+5
+63
+23
+9
++18
+nicht berufstätig
+4
+58
+23
+14
++19
+Höchster Schulabschluss
+Volks-/Hauptschule
+6
+47
+27
+20
++21
+Mittlere Reife/ Realschulabschluss
+9
+53
+27
+14
++21
+Abitur/ (Fach-)Hochschulreife
+6
+64
+22
+8
++16
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+7
+49
+21
+23
++14
+Lehre (auch duales System)
+7
+56
+25
+13
++18
+Fachschule/Fachhochschule/BA
+7
+61
+22
+10
++15
+Hochschulabschluss, Promotion
+5
+64
+23
+8
++18
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+6
+61
+24
+10
++18
+Deutsche mit Migrationshintergrund
+10
+55
+19
+16
++10
+Ausländer_innen
+9
+54
+22
+16
++13
+Wohndauer in Freiburg
+unter 5 Jahre
+6
+60
+24
+11
++18
+5 bis unter 15 Jahre
+7
+60
+23
+10
++16
+15 Jahre und länger
+5
+09
+23
+12
++18
+seit Geburt
+9
+09
+21
+11
++12
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+7
+55
+23
+14
++16
+2. Quartil
+5
+09
+26
+9
++21
+3. Quartil
+8
+62
+23
+7
++15
+4. Quartil (hõchstes Einkommen)
+6
+65
+20
+9
++14
+Durchschnitt
+insgesamt
+6
+59
+23
+11
++16
+Anzahl
+insgesamt
+163
+1517
+583
+290
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+89
+
+---
+
+## Page 88
+
+Beteiligungshaushalt 2025 / 26
+Freiburg-Umfrage 2024
+Der Aussage,dassdieStadreiburgverantwortungsvoll mit irenMitteln ugeht stime
+ich...
+Soziodemografische Merkmale
+sehr zu
+eher nicht
+überhaupt
+weiß ich
+eher zu
+teils/teils
+zu
+nicht zu
+nicht/k.A.
+Index
+Anteile in Prozent (%)
+Geschlecht
+weiblich
+6
+35
+25
+5
+2
+28
++19
+männlich (inkl. divers)
+9
+39
+24
+7
+2
+22
++20
+Altersgruppen
+16 bis unter 30
+7
+40
+18
+5
+1
+29
++24
+30 bis unter 45
+6
+39
+21
+5
+2
+27
++21
+45 bis unter 60
+5
+33
+27
+6
+3
+26
++15
+60 bis unter 75
+6
+34
+30
+8
+2
+20
++17
+75 und älter
+9
+37
+31
+5
+1
+17
++24
+Haushaltstyp
+Einpersonenhaushalt
+7
+32
+26
+8
+1
+27
++18
+Mehrpersonen ohne Kind
+6
+39
+25
+5
+2
+23
++21
+Mehrpersonen mit Kind(ern)
+6
+39
+23
+9
+2
+25
++20
+Alleinerziehende
+3
+40
+28
+6
+2
+19
++16
+Berufstätigkeit
+ganztags berufstätig
+5
+36
+23
+6
+3
+25
++18
+teilzeitbeschäftigt
+4
+37
+25
+5
+2
+27
++18
+Schüler_in / Student_in
+8
+45
+14
+3
+1
+29
++28
+nicht berufstätig
+7
+33
+29
+7
+1
+22
++19
+Höchster Schulabschluss
+Volks-/Hauptschule
+6
+21
+40
+8
+2
+23
++11
+Mittlere Reife/Realschulabschluss
+5
+29
+34
+8
+3
+19
++12
+Abitur/ (Fach-)Hochschulreife
+6
+41
+21
+9
+2
+25
++22
+Höchster beruflicher Abschluss
+Ohne Berufsabschluss
+6
+29
+23
+4
+1
+36
++18
+Lehre (auch duales System)
+5
+27
+34
+7
+3
+24
++12
+Facnscnuie/racnnocnscnuie/Beruisakadem
+6
+34
+26
+ie
+8
+2
+24
++17
+Hochschulabschluss, Promotion
+6
+44
+20
+5
+1
+23
++25
+Migrationshintergrund
+Deutsche ohne Migrationshintergrund
+5
+39
+24
+6
+2
+24
++20
+Deutsche mit Migrationshintergrund
+5
+29
+30
+6
+3
+28
++13
+Ausländer_innen
+11
+33
+21
+4
+3
+29
++22
+Wohndauer in Freiburg
+unter 5 Jahre
+8
+39
+16
+4
+0
+33
++25
+5 bis unter 15 Jahre
+6
+38
+23
+3
+2
+27
++22
+15 Jahre und länger
+6
+36
+29
+7
+2
+21
++19
+seit Geburt
+2
+33
+26
+11
+5
+23
++7
+Äquivalenzeinkommen
+1. Quartil (geringstes Einkommen)
+8
+31
+25
+5
+2
+29
++20
+2. Quartil
+4
+37
+28
+8
+1
+20
++17
+3. Quartil
+4
+45
+22
+5
+2
+22
++22
+4. Quartil (höchstes Einkommen)
+8
+40
+22
+6
+2
+22
++24
+Durchschnitt
+insgesamt
+6
+37
+24
+6
+2
+25
++19
+Anzahl
+insgesamt
+155
+933
+620
+150
+50
+644
+2552
+unterdurchschnittliche Zustimmung
+überdurchschnittliche Zustimmung
+10 oder mehr Punkte unter dem Durchschnitt
+5 bis 10 Punkte über dem Durchschnitt
+5 bis 10 Punkte unter dem Durchschnitt
+10 oder mehr Punkte über dem Durchschnitt
+90
+Stadt Freiburg i.Br. | Amt für Bürgerservice und Informationsmanagement
+
+---
+
+## Page 89
+
+5
+Fragebogen
+
+---
+
+## Page 90
+
+Freiburg
+D
+1 M
+BREISGAU
+Freiburg-Umfrage 2024
+I.
+Leben in Freiburg
+1.Seit wann wohnen Sie aktuell in
+a) Freiburg?
+b) Ihrer jetzigen Wohnung?
+seit dem Jahr: .
+seit dem Jahr: ...... . . ...
+Wenn Sie an die Lebensbedingungen in Freiburg denken: Wie waren / wie sind diese...
+ziemlich
+ziemlich
+sehr
+weiß ich
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+sehr gut
+teils/teils
+gut
+schlecht
+schlecht
+nicht
+Vor zehn Jahren
+□
+□
+Letztes Jahr
+Gegenwärtig
+□
+□
+□
+□
+□
+In zehn Jahren
+□
+□
+□
+II.
+Wohnraumversorgung
+3.Wie zufrieden sind Sie mit den folgenden Eigenschaften Ihrer Wohnung?
+sehr
+eher
+eher
+sehr
+weiß ich
+teils/teils
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+zufrieden
+zufrieden
+unzufrieden unzufrieden
+nicht
+Ausstattung der Wohnung
+Zustand der Wohnung
+Kosten der Wohnung
+□
+□
+□
+□
+Lage der Wohnung
+□
+□
+□
+Größe der Wohnung
+□
+□
+□
+□
+Aufteilung der Zimmer
+□
+□
+□
+4Wie groß ist Ihre Wohnung (mit Flur, Küche und Bad) und wie viele Zimmer (ohne Flur, Küche und
+Bad) umfasst diese?
+Die Wohnung umfasst
+Quadratmeter Wohnfläche und verfügt über
+Zimmer
+5. Wohnen Sie in einer Mietwohnung, einer Eigentumswohnung oder in einem eigenen Haus?
+ Mietwohnung (auch Untermiete)
+ Gemietetes Haus
+ Eigentumswohnung  Eigenes Haus
+III.
+Leben im Wohngebiet
+6. Wohnen Sie gerne in Ihrem jetzigen Wohngebiet?
+ sehr gerne
+ gerne
+ teils/teils
+ nicht gerne
+ überhaupt nicht gerne
+□
+I weiß ich nicht
+
+---
+
+## Page 91
+
+Bitte geben Sie zusätzlich an, welche Aspekte Sie als besonders wichtig erachten.
+b)
+a) Zufriedenheit
+kann ich
+beson-
+(Bitte machen Sie in jeder Zeile ein Kreuz, wie
+sehr
+eher
+eher
+sehr
+teils/
+nicht
+ders
+zufrieden Sie jeweils sind und markieren Sie in der
+zufrie-
+zufrie-
+unzu-
+unzu-
+teils
+beur-
+wichtig
+rechten Spalte besonders wichtige Aspekte!)
+den
+den
+frieden
+frieden
+teilen
+Entfernung zur Arbeitsstätte
+□
+□
+□
+□
+□
+Versorgung mit Waren (z.B. Lebensmittel)
+Versorgung mit Dienstleistungen (z.B. Friseur)
+□
+□
+□
+□
+Gesundheitsversorgung
+(z.B. Arztpraxen, Apotheken)
+Stationäre Pflegeangebote
+□
+□
+□
+Internetzugang / Breitband-Ausbau
+Versorgung mit Schulen
+□
+Betreuungsplätze für unter 3-Jährige
+Betreuungsplätze für 3- bis 6-Jährige
+□
+□
+□
+□
+Betreuungsplätze für Schulkinder
+□
+□
+Spielmöglichkeiten für Kinder / Spielplätze
+□
+□
+Außerschulische Bildungsangebote
+Vernetzte / Lebendige Nachbarschaft
+□
+□
+□
+□
+Gestaltung des Wohngebietes
+□
+□
+Sauberkeit im Wohngebiet
+□
+□
+□
+□
+Erreichbarkeit der Innenstadt
+Ruhige Lage
+□
+Urbanes Flair
+Lärmbelastung
+□
+□
+□
+Luftqualität
+□
+□
+Sicherheit im Wohngebiet
+□
+Aussehen / Zustand der Häuser
+Kulturangebote (Aufführungen, Feste, Hocks)
+□
+□
+□
+□
+Angebot an Park- / Grünanlagen
+Sport- / Freizeitmöglichkeiten
+Gaststätten / Restaurants
+Versorgung mit öffentlichen
+Verkehrsmitteln (ÖPNV)
+Gehwege
+□
+□
+Radwege
+□
+□
+□
+Parkplatzangebot
+Nähe zu Carsharing-Stellplatz
+□
+□
+
+---
+
+## Page 92
+
+IV.
+Soziale Gerechtigkeit
+nein
+trifft
+(Bitte pro Zeile ein Kästchen ankreuzen! Wenn Sie nicht zum betroffenen
+ja,
+ja,
+Personenkreis zählen, kreuzen Sie bitte „trifft nicht zu“ an.)
+mehrmals
+nicht zu
+einmal
+Miete für die selbst bewohnte Wohnung oder
+das selbst bewohnte Haus
+Zinsen und/oder Tilgung von Hypotheken für die
+selbst bewohnte Wohnung oder das selbst bewohnte Haus
+Zinsen und/oder Tilgung von Konsum- oder Verbraucherkrediten
+für z. B. Auto, Möbel,…. (ohne Überziehungskredit des Girokontos)
+Rechnungen für Strom, Heizkosten oder Wasser
+ Was kann sich Ihr Haushalt finanziell leisten?
+trifft nicht
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+ja
+nein
+zu
+Mindestens eine Woche pro Jahr Urlaub woanders als zu Hause zu verbringen
+(auch Urlaub bei Freunden/Verwandten oder in der eigenen Ferienunterkunft).
+□
+Jeden zweiten Tag eine Mahlzeit mit Fleisch, Geflügel oder Fisch
+oder eine hochwertige vegetarische Mahlzeit
+Unerwartet anfallende Ausgaben in Höhe von mindestens 1 500 Euro
+aus eigenen Finanzmitteln zu bestreiten.
+Die Wohnung angemessen warm zu halten.
+Alle Medikamente, medizinischen Produkte und Dienstleistungen sowie
+ärztlichen Behandlungen, die mir von Ärzten oder Pflegekräften verschrieben
+□
+□
+oder dringend empfohlen werden.
+Unterstützung im Alltag und bei der Haushaltsführung: Stellen Sie sich bitte vor, Sie sind aufgrund
+gesundheitlicher Beeinträchtigungen ein- bis mehrmals wöchentlich auf Unterstützung bei der
+Haushaltsführung (Reinigung, Einkauf, Kochen) angewiesen. Wie sehr wünschen Sie sich die folgenden
+Formen der Unterstützung? Kreuzen Sie bitte zusätzlich die Angebote an, die Sie heute bereits in
+Anspruch nehmen.
+10. Ich wünsche mir eine Unterstützung zu Hause durch.
+Bitte pro Zeile ein Kästchen ankreuzen!
+sehr
+eher
+sehr
+nehme ich
+(ggf. 2. Kästchen bei „nehme ich in Anspruch“)
+gern
+teils/teils
+bereits in
+gern
+ungern
+ungern
+Anspruch
+Familienangehörige
+□
+□
+□
+□
+□
+Freunde, Nachbarn
+□
+Ehrenamtliche
+□
+□
+Haushalts- und Betreuungsdienste
+□
+11. Ich würde umziehen und mir Unterstützung wünschen ….
+Bitte pro Zeile ein Kästchen ankreuzen!
+sehr
+eher
+nehme ich
+(ggf. 2. Kästchen bei „nehme ich in Anspruch“)
+gern
+teils/teils
+sehr
+gern
+ungern
+bereits in
+ungern
+In einem betreuten Wohnen / Wohnen mit
+Anspruch
+Service. Die Unterstützung übernehmen Dienste
+□
+wie z. B. Haushalts- und Pflegedienste
+□
+In einem gemeinschaftlichen Wohnprojekt. Die
+Unterstützung übernehmen Dienste wie z. B.
+Haushalts- und Pflegedienste
+□
+□
+Im Haushalt meiner Familienangehörigen
+□
+□
+□
+□
+
+---
+
+## Page 93
+
+Unterstützung bei der Pflege: Stellen Sie sich bitte vor, Sie sind aufgrund gesundheitlicher
+Beeinträchtigungen ein- bis mehrmals täglich auf Unterstützung bei der Pflege (z.B. Körperpflege /
+Toilettengang) angewiesen. Wie sehr wünschen Sie sich die folgenden Formen der Unterstützung?
+Kreuzen Sie bitte zusätzlich die Angebote an, die Sie heute bereits in Anspruch nehmen.
+12. Wenn ich täglich oder mehrmals täglich zu Hause Pflege benötige, dann wünsche ich mir diese
+durch...
+Bitte pro Zeile ein Kästchen ankreuzen!
+sehr
+eher
+sehr
+nehme ich
+(ggf. 2. Kästchen bei „nehme ich in Anspruch“)
+gern
+teils/teils
+gern
+bereits in
+ungern
+ungern
+Familienangehörige
+Anspruch
+□
+□
+□
+□
+□
+Enge Freunde
+□
+□
+Pflegedienste
+□
+□
+□
+□
+□
+Eine Betreuungskraft, die bei mir wohnt
+□
+□
+□
+13. Ich würde umziehen und mir eine Versorgung wünschen …
+Bitte pro Zeile ein Kästchen ankreuzen!
+sehr
+eher
+sehr
+nehme ich
+(ggf. 2. Kästchen bei „nehme ich in Anspruch“)
+gern
+teils/teils
+gern
+bereits in
+ungern
+ungern
+Anspruch
+Im Haushalt meiner Familienangehörigen
+□
+□
+□
+□
+□
+□
+In einer Pflegewohngruppe oder Demenz-
+□
+□
+Wohngemeinschaft
+□
+□
+In einem Pflegeheim
+□
+□
+□
+□
+□
+□
+14. Wenn Sie das deutsche Bildungssystem betrachten: Stellen ungleiche Möglichkeiten für Kinder ein
+Problem dar? Ungleiche Möglichkeiten zwischen...
+ein sehr
+ein
+über-
+ein
+ein
+haupt
+kann ich
+(Bitte pro Zeile ein Kästchen ankreuzen!
+großes
+großes
+mittleres
+geringes
+kein
+nicht
+Problem
+Problem
+Problem
+Problem
+Problem
+beurteilen
+Jungen und Mädchen
+□
+□
+□
+Kindern, die auf dem Land oder in einer Stadt zur
+Schule gehen
+Kindern aus unsicheren bzw. stabilen sozialen
+Verhältnissen
+□
+Kinder aus bildungsfernen und gebildeten
+Elternhäusern
+□
+□
+Kindern mit und ohne Migrationshintergrund
+□
+□
+□
+□
+—
+15. Was meinen Sie, stellen die folgenden Aspekte in Freiburg ein Problem dar?
+ein sehr
+über-
+kann ich
+ein
+ein
+ein
+(Bitte pro Zeile ein Kästchen ankreuzen!
+haupt
+nicht
+großes
+großes
+mittleres
+geringes
+kein
+beurteilen
+Problem
+Problem
+Problem
+Problem
+Problem
+7 trifft
+Fehlende Chancengleichheit für Kinder aus sozial
+nicht zu
+benachteiligenden Verhältnissen
+□
+Mangelnde Integration von Schüler_innen mit
+Migrationshintergrund
+□
+Unzureichende Inklusion von Schüler_innen mit
+Behinderungen
+□
+
+---
+
+## Page 94
+
+E-Books.
+(Bitte nur ein Kästchen ankreuzen!)
+ weniger als 25
+ 25 bis 50
+ 51 bis 100
+ 101 bis 250
+ 251 bis 500
+ mehr als 500
+17. Leben in Ihrem Haushalt Kinder, Jugendliche oder junge Erwachsene unter 25 Jahren?
+□ ja
+ nein (weiter mit Frage 21)
+18. Bitte geben Sie für jedes Kind das Alter und das Geschlecht an. Bei Schulkindern geben Sie bitte
+zusätzlich die Schulart sowie die Klassenstufe an und ob es sich um eine Privatschule handelt
+1. Kind
+2. Kind
+3. Kind
+4. Kind
+Bitte eintragen:
+Alter (in Jahren):
+Geschlecht:
+ Mädchen
+ Mädchen
+ Mädchen
+ Mädchen
+ Junge
+ Junge
+ Junge
+ Junge
+ divers
+ divers
+ divers
+ divers
+Klassenstufe
+Schulart
+Trägerschaft:
+öffentlich
+□ öffentlich
+ öffentlich
+ öffentlich
+ privat
+ privat
+ privat
+ privat
+19. Im Folgenden geht es darum, wie häufig Sie Ihr Kind/lhre Kinder bei schulischen Angelegenheiten
+unterstützen. Wie häufig.….
+nie
+trifft nicht
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+selten
+manchmal
+oft
+zu
+Unterstützen Sie Ihr Kind / Ihre Kinder bei Hausaufgaben?
+□
+□
+□
+□
+Kaufen Sie zusätzliche Lernmaterialen oder Bücher, um Ihr
+Kind / Ihre Kinder beim Lernen zu unterstützen?
+□
+Unterstützen Sie Ihr Kind / Ihre Kinder bei Vorträgen oder
+Referaten für den Unterricht?
+Unterhalten Sie sich mit Ihrem Kind / Ihren Kindern über
+Themen, die im Unterricht behandelt werden?
+□
+Unterhalten Sie sich mit Ihrem Kind / Ihren Kindern über
+Probleme in der Schule?
+□
+□
+□
+□
+Bieten Sie Ihrem Kind / Ihren Kindern die Möglichkeit,
+Nachhilfe in Anspruch zu nehmen?
+□
+□
+□
+20. Im Folgenden geht es darum, wie häufig Sie sich in schulischen Bereichen engagieren. Wie häufig...
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+nie
+selten
+manchmal
+trifft nicht
+oft
+Nehmen Sie an Elternabenden teil?
+zu
+□
+Helfen Sie bei Schulveranstaltungen mit?
+□
+Führen Sie Gespräche mit Lehrkräften?
+□
+Nehmen Sie an Elternsprechtagen teil?
+□
+□
+Beteiligen Sie sich als Elternvertretung?
+□
+□
+□
+
+---
+
+## Page 95
+
+21. Es gibt im Laufe des Lebens eine Reihe von Bildungsübergängen. Welche der folgenden Übergänge
+haben Sie, oder eines Ihrer Kinder, in den letzten Jahren erlebt und wie zufrieden waren Sie mit der
+Begleitung und Unterstützung durch die jeweils beteiligten Institutionen (Schulen/ Kindergärten/
+Hochschulen..)
+Übergang
+Zufriedenheit
+erlebt?
+kann
+eher
+sehr
+sehr
+eher
+ich
+teils/
+unzu-
+unzu-
+ja
+nein
+zufrie-
+zufrie-
+nicht
+Bitte in jede Zeile
+teils
+frie-
+frie-
+den
+den
+beur-
+ein Kreuz bei „Übergang erlebt“
+den
+den
+teilen
+Wenn ja, ein Kreuz bei Zufriedenheit!
+□
+□
+□
+□
+Vom Elternhaus in den Kindergarten
+□
+□
+Vom Kindergarten in die Grundschule
+□
+□
+□
+□
+√
+Von der Grundschule in die weiterführende
+□
+□
+□
+Schule
+Von einer weiterführenden Schule auf eine
+□
+□
+andere weiterführende Schule
+□
+□
+□
+□
+□
+□
+Von der Schule in die Berufsausbildung
+□
+□
+□
+□
+□
+□
+Von der Schule in das Studium
+□
+V. Grün- und Freiräume in der Stadt
+22. Wie zufrieden sind Sie mit dem Zustand des für Sie nächst gelegenen Grün-/Freiraumes?
+eher
+sehr zu-
+eher
+teils/
+sehr unzu-
+weiß ich
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+zufrieden
+teils
+unzu-
+frieden
+frieden
+nicht
+frieden
+Öffentliche Freiflächen / Plätze in der Innenstadt
+□
+□
+Öffentlicher Grün- / Freiraum im Stadtteil
+□
+Öffentlicher Grün- / Freiraum außerhalb meines
+□
+□
+Stadtteils
+Kinderspielplätze
+□
+□
+□
+□
+□
+Öffentliche Außensportflächen /
+□
+□
+□
+□
+□
+öffentlich zugängliche Vereinssportanlagen
+Friedhöfe
+□
+□
+□
+□
+□
+Stadtwald
+□
+□
+□
+□
+□
+□
+Sonstiges:
+23. Wie nehmen Sie die Auslastung im für Sie nächst gelegenen Grün-/Freiraum wahr?
+kaum
+sehr
+teils/
+wenig
+bis gar
+weiß ich
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+überfüllt
+belebt
+teils
+belebt
+nicht
+nicht
+genutzt
+Öffentliche Freiflächen / Plätze in der Innenstadt
+□
+□
+□
+Öffentlicher Grün- / Freiraum im Stadtteil
+□
+□
+Öffentlicher Grün- / Freiraum außerhalb meines
+Stadtteils
+□
+Kinderspielplätze
+□
+□
+Öffentliche Außensportflächen / öffentlich zugängliche
+□
+Vereinssportanlagen
+Friedhöfe
+Stadtwald
+□
+Sonstiges:
+
+---
+
+## Page 96
+
+Weiß ich
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+sehr
+eher
+teils/
+eher un-
+sehr un-
+nicht/nicht
+zufrieden zufrieden
+teils
+zufrieden zufrieden
+vorhanden
+Zustand der Anlagen insgesamt
+□
+□
+□
+Sanitäranlagen
+Sauberkeit
+□
+□
+Sicherheit
+□
+Bepflanzung (Bäume, Sträucher, Blumen)
+□
+□
+Grillstellen
+Angebot an Sitzmöglichkeiten
+□
+Angebot an Schattenplätzen
+Barrierefreiheit
+Angebot an Spazierwegen
+Sport- und Bewegungsmöglichkeiten /
+□
+Sportboxen
+Nutzungsangebote für Kinder
+□
+Nutzungsangebote für Jugendliche
+□
+□
+Nutzungsangebote für Seniorinnen / Senioren
+□
+Sonstiges:
+□
+□
+□
+□
+Ist hierbei ein bestimmter Grün- / Freiraum in der Stadt für Sie von besonderer Bedeutung?
+Was empfinden Sie als besonders störend in den Grün-/Freiräumen?
+Was wünschen Sie sich zusätzlich zum derzeitigen Angebot im für Sie nächst gelegenen Grün-/Freiraum?
+VI.
+Politische Beteiligung
+25. Wie stark sind Sie interessiert an .. ?
+stark
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+interessiert
+schwach
+mittel
+überhaupt
+interessiert
+interessiert
+nicht
+Dem kommunalpolitischen Geschehen in
+Ihrem Stadtteil / in Ihrer Ortschaft
+Der Politik des Gemeinderats
+Der Landespolitik in Baden-Württemberg
+□
+Der Bundespolitik
+□
+Der Politik auf europäischer Ebene
+□
+26. Fühlen Sie sich einer Partei politisch nahe? Wenn ja welcher?
+ GRÜNE
+CDU
+ SPD
+ Volt
+ DIE LINKE
+ AfD
+FDP
+BSW
+ Sonstige und zwar:
+ Keiner Partei
+27. Wie sehr neigen Sie zu dieser Partei?
+ sehr stark
+ stark
+ mittelmäßig
+ schwach
+ sehr schwach
+
+---
+
+## Page 97
+
+beeinflussen. Sind Sie der Meinung, dass man Einfluss nehmen kann? Sind Sie selbst schon aktiv
+(geworden)?
+Man kann .. Einfluss nehmen
+Würden Sie dies selbst tun?
+Bitte in jede Zeile ein Kreuz bei "Man kann …
+Einfluss nehmen" und ein Kreuz bei "Würden
+weiß
+ja, bereits
+ja,
+kaum
+nein
+Sie dies selbst tun?"!
+stark
+etwas
+nicht
+getan
+eventuell
+In einem Verein oder Verband
+□
+□
+□
+mitmachen
+π
+□
+□
+□
+Leserbriefe schreiben
+□
+□
+□
+□
+An Kommunalwahlen teilnehmen
+□
+□
+An Befragungen teilnehmen
+□
+□
+□
+□
+Für Bürgerentscheide unterschreiben
+Sich in einer Partei engagieren
+An digitalen Beteiligungsformaten
+teilnehmen (z.B. Beteiligungshaushalt)
+Sich an den Oberbürgermeister oder die
+Verwaltung wenden
+An Informations-Veranstaltungen für
+Bürger_innen / „OB vor Ort“ teilnehmen
+Sich an Gemeinderatsmitglieder/
+-fraktionen wenden (bzw. Ortschaftsrat)
+Sich an Beiräte wenden
+(z. B. Elternbeirat, Seniorenrat)
+Sich an Demonstrationen beteiligen
+□
+□
+□
+□
+□
+Sich an Bürgervereine wenden
+□
+□
+□
+□
+In einer Dialog- oder Arbeitsgruppe zu
+□
+□
+□
+□
+□
+städtischen Themen mitarbeiten
+29. Wie informieren Sie sich über das kommunalpolitische Geschehen in Freiburg?
+(Bitte alles Zutreffende ankreuzen.)
+Tageszeitung
+Internetseite der Stadt (www.freiburg.de)
+Amtsblatt
+Besuch von Gemeinderatssitzungen
+Lokale kostenlose Wochenzeitungen
+Live-Ticker zu Gemeinderatssitzungen
+Ortschafts- und Stadtteilblätter
+Ratsinformationssystem RIS
+Soziale Medien der Stadt Freiburg
+Internet
+Soziale Netzwerke (X, Instagram, Facebook,
+Teilnahme an städtischen
+WhatsApp, Telegram etc.)
+(Informations-)Veranstaltungen
+Lokalfernsehen
+Gespräche mit Nachbarn/Bekannten
+Radio (regionale Programme)
+Sonstiges, und zwar:
+Veranstaltungen von Vereinen/Parteien
+Ich informiere mich überhaupt nicht
+30. Haben Sie an den Kommunalwahlen am 9. Juni 2024 teilgenommen?
+war nicht
+ja, im Wahllokal
+ja, per Briefwahl
+nein
+weiß nicht mehr
+wahlberechtigt
+□
+31. Wie finden Sie Ihre Interessen im Gemeinderat vertreten?
+sehr gut
+gut
+teils/
+schlecht
+sehr schlecht
+weiß ich
+vertreten
+vertreten
+teils
+vertreten
+vertreten
+nicht
+□
+□
+□
+
+---
+
+## Page 98
+
+VII. Städtische Finanzen
+Zufriedenheit
+sehr
+kann ich
+eher
+eher
+sehr
+teils/
+nicht
+unzu-
+unzu-
+zufrie-
+zufrie-
+teils
+frieden
+frieden
+beurteilen
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+den
+den
+□
+□
+□
+□
+□
+Quantität Wohnungsbau
+□
+□
+□
+Quantität Ausweisung von weiteren Wohnbauflächen
+□
+□
+□
+□
+□
+Modernisierung und Sanierung in Wohngebieten
+□
+□
+Bürgerservice / Bürgerkontakte der Stadt Freiburg
+□
+□
+Digitalisierung (z.B. Online-Dienste, Infrastruktur,
+Digitalisierung an Schulen)
+Instandhaltung und Bau von Schulen
+□
+
+□
+Betreuungsangebote an Grundschulen
+Betreuungsangebote an weiterführenden Schulen
+□
+Kindergärten und Kindertagesstätten
+Spielplätze
+□
+Treffpunkte / Einrichtungen für die Jugend
+Treffpunkte / Beratungsstellen für Senior_innen
+Angebote für Zugewanderte (Sprachkurse, Treffs)
+□
+□
+□
+□
+Beratungsstellen (z.B. Erziehung, Sucht)
+□
+Schwimmbäder
+□
+□
+Sportförderung (Vereine und Sportanlagen)
+□
+□
+Förderung von freiwilligem Engagement
+□
+□
+□
+Förderung der Barrierefreiheit (Bauen und
+Kommunikation)
+Wirtschafts- und Tourismusförderung, Messen
+□
+□
+□
+□
+Kulturförderung (z.B. Bürgerhäuser, Kunst, Chöre)
+□
+Theaterangebote (Städtische Bühnen und freie Theater)
+□
+□
+□
+□
+Musikangebote (z.B. Musikschulen, Konzerte,
+Vereinszuschüsse)
+Städtische Museen und Stadtarchiv
+□
+□
+□
+□
+Bildungseinrichtungen (z.B. Stadtbibliothek,
+Volkshochschule, Planetarium)
+Klimaschutz (Energiesparen, Wärmedämmung, CO2-
+Reduktion)
+□
+Naturschutz (z.B. Schutzgebiete, Artenschutz)
+□
+□
+Parks und Grünanlagen
+□
+□
+Stadtwald (Waldpflege, Wegenetz, Erholungs- und
+Freizeitangebote)
+Friedhöfe (z.B. Verwaltung, Pflege von
+Friedhofsanlagen)
+Abfallbeseitigung und Sauberkeit in der Stadt
+□
+□
+Öffentliche Sicherheit und Ordnung
+□
+Feuerwehr / Katastrophenschutz
+Straßen-Netz für den motorisierten Verkehr (z.B. PKWs,
+LKWs, Busse)
+Öffentlicher Nahverkehr (Bahnen und Busse)
+Radwege-Netz
+Fußwege-Netz
+
+---
+
+## Page 99
+
+33. Die Stadt Freiburg kann sich  genau wie ein Privathaushalt — nicht alles gleichzeitig leisten.
+Meistens muss man, wenn man für eine Sache mehr ausgeben will, bei einer anderen einsparen.
+Bitte geben Sie für jeden Aufgabenbereich an, ob die Stadt Ihrer Meinung nach
+-einsparen kann, also Leistungen einschränken soll,
+-die Aufgaben unverändert belassen soll,
+-die Leistungen verbessern, also mehr ausgeben soll.
+ein-
+unver-
+mehr
+kann ich
+(Bitte pro Zeile ein Kästchen ankreuzen!)
+sparen
+ändert
+aus-
+nicht
+geben
+beurteilen
+Quantität Wohnungsbau
+□
+□
+Quantität Ausweisung von weiteren Wohnbauflächen
+□
+□
+□
+Modernisierung und Sanierung in Wohngebieten
+Bürgerservice / Bürgerkontakte der Stadt Freiburg
+□
+Digitalisierung (Online-Dienste, Infrastruktur,
+□
+Digitalisierung an Schulen, .…)
+Instandhaltung und Bau von Schulen
+Betreuungsangebote an Grundschulen
+□
+□
+Betreuungsangebote an weiterführenden Schulen
+Kindergärten und Kindertagesstätten
+□
+Spielplätze
+□
+Treffpunkte / Einrichtungen für die Jugend
+□
+Treffpunkte / Beratungsstellen für Senior_innen
+Angebote für Zugewanderte (Sprachkurse, Treffs)
+□
+□
+Beratungsstellen (Erziehung, Drogen, Alkohol,..)
+□
+Schwimmbäder
+□
+Sportförderung (Vereine und Sportanlagen)
+Förderung von freiwilligem Engagement
+□
+Förderung der Barrierefreiheit (Bauen und Kommunikation)
+Wirtschafts- und Tourismusförderung, Messen
+□
+Kulturförderung (Bürgerhäuser, Kunst, Chöre,.)
+Theaterangebote (Städtische Bühnen und freie Theater)
+□
+Musikangebote (Musikschulen, Konzerte, Vereinszuschüsse,…)
+□
+Städtische Museen und Stadtarchiv
+□
+Bildungseinrichtungen (Stadtbibliothek, Volkshochschule,
+Planetarium,...)
+Klimaschutz (Energiesparen, Wärmedämmung, CO2-Reduktion)
+□
+□
+□
+Naturschutz (Schutzgebiete, Artenschutz,…)
+□
+Parks und Grünanlagen
+□
+Stadtwald (Waldpflege, Wegenetz, Erholungs- und
+□
+Freizeitangebote)
+Friedhöfe (Verwaltung, Pflege von Friedhofsanlagen,..)
+Abfallbeseitigung und Sauberkeit in der Stadt
+Öffentliche Sicherheit und Ordnung
+□
+□
+Feuerwehr / Katastrophenschutz
+Straßen-Netz für den motorisierten Verkehr (PKWs, LKWs, Busse,.…)
+Öffentlicher Nahverkehr (Bahnen und Busse)
+Radwege-Netz
+Fußwege-Netz
+
+---
+
+## Page 100
+
+34. Welche Einsparungen bzw. Mehrausgaben im städtischen Haushalt der Stadt Freiburg
+schlagen Sie konkret vor:
+Einsparungen:.
+Mehrausgaben:
+35. Der Aussage, dass die Stadt Freiburg verantwortungsvoll mit ihren Mitteln umgeht, stimme ich...
+ sehr zu
+ eher zu
+ teils/teils
+ eher nicht zu
+π
+überhaupt nicht zu
+ weiß ich nicht
+VIII. Fragen zu Ihrer Person
+36. Ihr Geburtsjahr?
+37. Ihr Geschlecht?
+ Weiblich
+ Männlich
+ Divers
+ Keine Angabe
+38. Haben Sie die deutsche Staatsangehörigkeit?
+ Ja, seit der Geburt
+ Ja, später erworben
+ Nein
+39. Sind Sie oder ein Mitglied Ihres Haushaltes außerhalb von Deutschland geboren?
+ Nein
+Ja, ich selbst
+ Ja, ein anderes Haushaltsmitglied
+40. Sprechen Sie oder ein Mitglied Ihres Haushaltes eine andere Muttersprache als Deutsch?
+ Nein (weiter mit Frage 42)
+ Ja, ich selbst
+ Ja, ein anderes Haushaltsmitglied
+41. Welche Sprache wird in Ihrem Haushalt überwiegend gesprochen?
+ Deutsch
+ Andere Sprache, und zwar:
+42. Wie viele Personen, Sie selbst eingeschlossen, leben ständig in Ihrem Haushalt (Lebens- und
+Wirtschaftsgemeinschaft)?
+Anzahl der Personen im Haushalt
+43. Welchen höchsten Schulabschluss haben Sie?
+(Bitte nur ein Kästchen ankreuzen!)
+ Volks- / Hauptschule
+ Anderer Schulabschluss oder im Ausland erworben
+ Mittlere Reife / Realschulabschluss
+ Keinen Schulabschluss
+ Abitur / (Fach-) Hochschulreife
+ Noch Schüler_in
+44. Welche beruflichen Bildungsabschlüsse haben Sie?
+(Bitte alles Zutreffende ankreuzen!)
+ Lehre ohne Abschluss, Anlernausbildung
+ Hochschulabschluss, Promotion
+ Abgeschlossene Lehre, Berufsausbildung im
+ Abschluss an einer Berufsakademie,
+dualen System
+Fachakademie
+ Fachschulabschluss
+ Andere Art der Berufsausbildung oder im Ausland
+(Meister_in, Techniker_in/gleichwertiger Abschluss)
+erworben
+ Fachhochschulabschluss
+ Ohne oder noch kein beruflicher Abschluss
+
+---
+
+## Page 101
+
+45. Sind Sie gegenwärtig erwerbstätig oder was trifft sonst auf Sie zu?
+(Bitte alles Zutreffende ankreuzen!)
+ Ganztags berufstätig
+ Rentner_in / Pensionär_in
+Teilzeitbeschäftigt mit __ %
+ Schüler_in / Student_in
+ Geringfügig / zeit- oder stundenweise beschäftigt
+ Hausfrau / Hausmann
+(520-€-Job, Mini-Job, 1-Euro-Job)
+Berufsausbildung, Lehre, FSJ, FÖJ, Freiwilligendienst
+ Etwas anderes
+ Arbeitssuchend
+46. Wenn Sie alles zusammenrechnen, was Ihr gesamter Haushalt (Lebens- und Wirtschafts-
+gemeinschaft) an Einkommen hat, also Lohn, Gehalt, Rente, Kindergeld, staatliche Leistungen
+oder andere Einkünfte nach Abzug der Steuern und Sozialversicherung, wie hoch ist dann das
+durchschnittliche monatliche Nettoeinkommen Ihres Haushaltes?
+(Bitte nur ein Kästchen ankreuzen!)
+ Unter 750 Euro
+ 3000 bis unter 3500 Euro
+ 750 bis unter 1000 Euro
+ 3500 bis unter 4000 Euro
+□ 1000 bis unter 1250 Euro
+ 4000 bis unter 4500 Euro
+□
+1250 bis unter 1500 Euro
+ 4500 bis unter 5000 Euro
+ 1500 bis unter 1750 Euro
+□ 5000 bis unter 5500 Euro
+□
+1750 bis unter 2000 Euro
+ 5500 bis unter 6000 Euro
+ 2000 bis unter 2250 Euro
+□ 6000 bis unter 6500 Euro
+ 2250 bis unter 2500 Euro
+ 6500 Euro und mehr
+ 2500 bis unter 3000 Euro
+ Ich kann / möchte diese Frage nicht beantworten
+Wasser, Strom und Gas?
+Mieter_in:
+Eigentümer in:
+Miete und Nebenkosten meines / unseres
+Finanzierung, Instandhaltung und Nebenkosten
+Haushaltes umfassen ungefähr
+meines / unseres Haushaltes umfassen ungefähr
+Euro im Monat.
+Euro im Monat.
+Finanzierung abgeschlossen?
+ Ja
+ Nein
+48. Ich habe für den Gemeinderat und die Stadtverwaltung noch folgende Anregungen:
+.………………………………
+Vielen Dank für Ihre Mitarbeit!

@@ -1,0 +1,50 @@
+# PDF to Markdown Converter Dependencies
+# =======================================
+#
+# Install all dependencies:
+#   pip install -r workers/pdf_to_md/requirements.txt
+#
+# Or install only specific converters (see sections below)
+
+# ========================================
+# MarkItDown Converter
+# ========================================
+# Fast converter from Microsoft, best for text-based PDFs
+# Install: pip install markitdown[pdf]
+markitdown[pdf]
+
+# ========================================
+# Unstructured Converter
+# ========================================
+# Advanced document parsing with layout detection and OCR
+# Install: pip install unstructured[pdf] unstructured-inference
+unstructured[pdf]
+unstructured-inference
+
+# ========================================
+# Marker-PDF Converter
+# ========================================
+# High-quality conversion using deep learning models
+# Note: Downloads ~2GB of model files on first run
+# Install: pip install marker-pdf
+marker-pdf
+
+# ========================================
+# PaddleOCR Converter
+# ========================================
+# OCR-based extraction with excellent multi-language support
+# Note: PaddlePaddle is a large dependency (~2GB with GPU support)
+# For CPU-only: pip install paddlepaddle
+# For GPU: pip install paddlepaddle-gpu
+# Install: pip install paddleocr paddlepaddle PyMuPDF
+paddleocr
+paddlepaddle
+PyMuPDF
+
+# ========================================
+# Pandoc Converter (pdfminer-based)
+# ========================================
+# Text extraction using pdfminer.six - fast, best for text-based PDFs
+# Note: pdfminer-six is already installed with markitdown[pdf]
+# Install separately: pip install pdfminer-six
+pdfminer-six
